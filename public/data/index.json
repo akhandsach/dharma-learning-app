@@ -1876,6 +1876,41 @@
     "readTime": 1
   },
   {
+    "id": "Category_Dharmik_Jeevan_Pratiman__ध_र_म_क_ज_वन_प_रत_म_न_",
+    "title": "Category:Dharmik_Jeevan_Pratiman_(धार्मिक_जीवन_प्रतिमान)",
+    "summary": "भारतीय जीवन (प्रतिमान) - पाठ्यक्रम (हिन्दी)  मूल प्रेरणा: भारत में \"भारतीय क्या होता है\" सिखाने की व्यवस्था नहीं है। भारतीयता क्या है? हिन्दू, हिंदुत्...",
+    "path": "General Dharma",
+    "readTime": 1
+  },
+  {
+    "id": "Category_Education_Series",
+    "title": "Category:Education_Series",
+    "summary": "Category:हिंदी भाषा के लेख...",
+    "path": "Society & Governance",
+    "readTime": 1
+  },
+  {
+    "id": "Category_Mahapurush__मह_प_र_ष_क_र_तनश_र_खल__",
+    "title": "Category:Mahapurush (महापुरुष कीर्तनश्रंखला)",
+    "summary": "मूल स्रोत : महापुरुषकीर्तनम्, लेखक- विद्यावाचस्पति विद्यामार्तण्ड धर्मदेव; सम्पादक: आचार्य आनन्दप्रकाश; प्रकाशक: आर्ष-विद्या-प्रचार-न्यास, आर्ष-शोध-सं...",
+    "path": "Society & Governance",
+    "readTime": 1
+  },
+  {
+    "id": "Category_Vyakarana",
+    "title": "Category:Vyakarana",
+    "summary": "Vyakarana is the native grammatical tradition of ancient India. Refer \"A Guide to Vyakarana Study\" for outline of a curriculum that aids the study of...",
+    "path": "Society & Governance",
+    "readTime": 1
+  },
+  {
+    "id": "Category_ध_र_म_क_श_क_ष__ग_र_थम_ल__5__व_श_व_क_स_कट___क__न_व_रण_ध_र_म_क_श_क_ष_",
+    "title": "Category:धार्मिक शिक्षा ग्रंथमाला 5: वैश्विक संकटों का निवारण धार्मिक शिक्षा",
+    "summary": "भारतीय शिक्षा : वैश्विक संकटों का निवारण भारतीय शिक्षा (भारतीय शिक्षा ग्रन्थमाला ५), प्रकाशक: पुनरुत्थान प्रकाशन सेवा ट्रस्ट, लेखन एवं संपादन: श्रीमती...",
+    "path": "General Dharma",
+    "readTime": 1
+  },
+  {
     "id": "Chakras__चक_र_ण__",
     "title": "Chakras (चक्राणि)",
     "summary": "Chakras are the nerve centers seen in our body. There are 1,72,000 Nadis (channels of metaphysical energy or life-force) in our body, and there are va...",
@@ -7369,6 +7404,13 @@
     "summary": "Detailed information about ancient Indian tax system is available in texts such as Kautiliya Arthashastra, Manusmrti, Shukraniti and to some extent in...",
     "path": "Philosophy & Darshanas",
     "readTime": 33
+  },
+  {
+    "id": "Template_Rishis_of_Hindu_mythology",
+    "title": "Template:Rishis of Hindu mythology",
+    "summary": "Category:Rishis...",
+    "path": "General Dharma",
+    "readTime": 1
   },
   {
     "id": "Temple_Architecture__द_व_लय_व_स_त__",
