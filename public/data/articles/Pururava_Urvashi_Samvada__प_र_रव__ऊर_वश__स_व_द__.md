@@ -1,0 +1,53 @@
+Pururava and Urvashi Samvada (पुरुरवा-ऊर्वशी संवादः) is mentioned in the Mandala 10 of the Rigveda (Sukta 95). It is the legend, in the form of a conversation, describing the affection between a human being, Pururava and an apsara named Urvashi. This story has been used as a plot by Kalidasa in his famous poetic drama titled Vikramorvashiyam (विक्रमोर्वशीयम्). However, it is to be remembered that this is not a fictional story and its original version is found in the Rigveda. This samvada is also found in other texts such as Shatapatha Brahmana, Brhaddevata, Vishnu Purana and Mahabharata. 
+
+## Lineage of Pururava
+Pururava and Urvashi and their legend has been described in the Rigveda and subsequently in the later day texts such as Shatapatha Brahmana, and Brhaddevata. Pururava has been described as a devata (of the middle tier) by Yaska in Nirukta (10. 46). Although described as a historical event, there is deeper meaning embedded in this legend according to some scholars.
+
+Pururavas is a descendent of the Chandravamsha, lineage of Chandra. Descending in the order from Brahma came Atri, Chandra, Budha followed by Pururava. Budha married Ila (इला) and their son is Pururava. Hence Pururava is also called as Aila (ऐल). The dynasty started from Chandra (Lunar race) but it was Pururava who became celebrated. 
+
+According to Padma Purana, Pururava and Urvashi had eight sons, while other puranas state that they had six or seven sons. According to Mahabharata,  Pururava had six sons of Urvashi named Ayush, Dhiman, Amavasu, Drdhayush, Vanaayush, and Satyaayush. Ayush (आयुष्) propagated the dynasty further. The names of the children are given differently in other texts.
+
+## Brief Summary of the Legend
+In the Rigveda we find a dialogue between Pururavas and Urvashi, however, the other particulars of the legend are summarily put together from other sources such as Brhaddevata (7.147-152) and puranic references.  <blockquote>पुरुरवसि राजर्षाव् अप्सरास्तूर्वशो पुरा । न्यवसत्संविदं कृत्वा तस्मिन्धर्मं चचार च ॥१४७॥ (Brhd. Deva. 7.147) </blockquote>In ancient times, Urvashi the celestial dancer lived with Pururava, the Rajarshi, faithfully following the rules of the world. Indra became jealous that Urvashi, leaving the Devaloka, was leading a happy life with Pururava. He was also afraid that Brahma liked Pururava and Indra equally. Indra sent Vajra to break up the happy couple. Vajra using his maya successfully separates the Rajarshi and Urvashi. Mad in her love Pururava wanders in search of Urvashi. Soon he finds her near a lake with five other damsels and implores her to return to the palace with him. Here they have a conversation where Urvashi refuses to return along with him and asks him not to have any faith in women. 
+
+According to Puranic references, Urvashi was once cursed, "Go and be born on the earth." It is stated in the Devi Bhagavata that it was Brahma who cursed Urvashi and in Bhagavata it was the Mitravaruna who cursed her. Urvashi had heard about the fame of Pururava and had felt love for him. Pururava asked her to be his wife. However, she laid down the conditions that he has to take care of her two lambs and never appear naked except during their union. As they spent their time happily, Indra started to notice her absence in the Devaloka. He sent Gandharvas to bring her back to Devaloka. The Gandharvas stole the two lambs and while the Raja was in the harem with Urvashi. She heard the lamb cries and reviled Pururava for not capable of taking care of them. Hearing these words he stood up in anguish forgetting his nudity. At that time, the Gandharvas flashed the lightning such that Urvashi saw him nude. Achieving their cause, the Gandharvas left the lambs. As her conditions were not kept, Urvashi leaves Pururava to go back to Devaloka. After wandering all over the country, Pururava finds her at Kurukshetra. He asks her to return to the palace. Seeing his grief Urvashi tells him to worship the Gandharvas. She asks him to return to the same place and that she will give him his child. After one year, Urvashi gave him a beautiful child and vanished. According to Kathasaritsagar, Pururavas was also cursed by Tumburu to suffer from the pangs of separation from Urvashi.  
+
+## Pururava and Urvashi Samvada
+In the Rigveda, Mandala 10, Sukta 95, the dialogue between Pururava and Urvashi is given in 18 mantras. Rshi and devata for these mantras are Pururava and Urvashi, and the Chandas is trishtup. It should be noted that none of the above given particulars of the legend are adverted to except the past cohabitation of the Raja and Apsara in this Sukta.   
+
+Pururava: O heartless lady! generate affection in your heart for me so as to engage in a conversation with me. If we keep silence at this time both of us cannot be happy in the future.  
+
+Urvashi: O Pururava! We cannot accomplish anything through such discourse. I am as hard to hold as Vayu. I swiftly passed away from you like Ushas (dawn). Return to your palace.   
+
+Pururava: O Urvashi ! I am distressed due to separation from you so much so that I am unable to cast even an arrow from my quiver. I am no longer able to fight in the battlefield to bring home an uncountable number of cows. I have deviated from the duties of a Raja and hence even my warriors no longer have any work.  
+
+Urvashi says that she feared no competition from any co-wives as she was fully satisfied with his company at all times. As soon as Pururava was born, all celestial women surrounded to see him. The flowing rivers praised him. Then the devatas prayed to him for a mighty conflict to slay the Dasyus. Hearing her words, as Pururava approached Urvashi and other apsaras, they quickly vanished fleeing like timid deer and playful horses. Pururava thought that Urvashi who shone like the celestial lightning, always fulfilled all my desires. Such Urvashi may give rise to my son who has a long life.      <blockquote>ज॒ज्ञि॒ष इ॒त्था गो॒पीथ्या॑य॒ हि द॒धाथ॒ तत्पु॑रूरवो म॒ ओज॑: ।     
+
+अशा॑सं त्वा वि॒दुषी॒ सस्मि॒न्नह॒न्न म॒ आशृ॑णो॒: किम॒भुग्व॑दासि ॥११॥ (Rig. Veda. 10.95.11)</blockquote>Urvashi: O Pururava! You have given rise to a son to protect this earth. I have instructed many times that I shall not return to live with you. Why  are you spending time on a futile conversation instead of ruling your subjects wisely. <blockquote>क॒दा सू॒नुः पि॒तरं॑ जा॒त इ॑च्छाच्च॒क्रन्नाश्रु॑ वर्तयद्विजा॒नन् ।
+
+को दम्प॑ती॒ सम॑नसा॒ वि यू॑यो॒दध॒ यद॒ग्निः श्वशु॑रेषु॒ दीद॑यत् ॥१२॥ (Rig. Veda. 10.95.12)</blockquote>Pururava: How can a son (born of you) live with me? He will weep (in your absence). Which householder will knowingly sever the bonds of mutual affection (of the husband and wife)? Now there sprang forth a bright light in your husband's parents' house (in the form of the expectation of a son).<blockquote>प्रति॑ ब्रवाणि व॒र्तय॑ते॒ अश्रु॑ च॒क्रन्न क्र॑न्ददा॒ध्ये॑ शि॒वायै॑ ।
+
+प्र तत्ते॑ हिनवा॒ यत्ते॑ अ॒स्मे परे॒ह्यस्तं॑ न॒हि मू॑र॒ माप॑: ॥१३॥ (Rig. Veda. 10.95.13)</blockquote>Urvashi replies saying the son will not weep when he comes to you. I shall always wish for his well-being. But you cannot detain (live with) me. Hence depart to your dwelling, I shall send the child to you at an appropriate auspicious time. 
+
+Pururava further implores that he will depart (fall on the ground) to distant land never to return. And that he will attain mrtyu (death) and be devoured by the wolves. Urvashi forbids his words saying that he should not think of dying and that women and wolves have a same kind of disposition and friendship with them is never a lasting one. She continues saying that she wandered among people with different forms and had a delightful life for four years, having only a small quantity of butter for food. Pururava further implores that Urvashi is like rain (brings in water) and completely fills the atmosphere (with lustre). Vasishta (epithet for the giver of dwellings) himself could not rein in Urvashi, but that she should return to him. Urvashi ascertains that the devatas have blessed Aila (Pururava) with long life (overcome death) and that he propitiates them with offering havya in devayajnas and attains a position in Svargaloka. 
+
+### Esoteric Meaning
+The word Pururava has been defined as पुरूरवा बहुधा रोरूयते meaning "one who makes a lot of sound". He has been described as Aila (ऐल) meaning इला का पुत्र or the son of Ila (Rigveda. 10.95.18). Ila has been referred to as Prthvi (The Earth) in Kaushitaki Brahmana (9.2). According to some scholars Pururava can be another name for Megha (मेधः) or clouds as the steam from the earth transforms into clouds and they make a lot of sound in the form of thunders.  
+
+As per the etymological origin of the word Urvashi, is from the root उरु (Uru) in the sense of अश् व्याप्तौ meaning 'spreading far' which can be applied to Vidyut or electric flash in the modern sense. In Nirukta (5.14), उरु अभ्यश्नुते (uru abhyashnute) means 'extensively pervading' and is a middle tier devata. 'अप्सरा अप्सु सरति' means the the waters moving in the celestial regions of the universe. 
+
+As per Rigveda mantra,  <blockquote>सम॑स्मि॒ञ्जाय॑मान आसत॒ ग्ना उ॒तेम॑वर्धन्न॒द्य१: स्वगू॑र्ताः । 
+
+म॒हे यत्त्वा॑ पुरूरवो॒ रणा॒याऽव॑र्धयन्दस्यु॒हत्या॑य दे॒वाः ॥७॥ (Rig. Veda. 10.95.7)</blockquote>Pururava (Megha) originates when 'ग्नाः' meaning 'आपः (जल)' or water  is filled with it. In Nirukta (10.46) 'ग्नाः' means 'गमनाद् आपः' or it is called "water because it moves". In the above mantra, अवर्धन् नद्य: स्व-गूर्ताः means 'rivers flowing by themselves', also supports the interpretation that Pururava means clouds.
+
+The adjectives for Urvashi given in the mantras 10 to 17 of this sukta, describe 'one that is pervasive in the atmosphere'. Such references clearly refer this legend to a poetic expression of a natural phenomenon more than to a historical instance.
+
+This poetic expression is a description of a natural instance where at the friction between clouds (Pururava) there flashes a lightning (Urvashi) for a few moments and disappears almost instantaneously. In the Shatapatha Brahmana mantra given below, it is stated that 'Ayuh (आयुः)' is the son of Pururava and Urvashi. 
+
+असीत् ऊर्वशी वा अप्सराः पुरूरवाः पतिः अथ यत् तस्मान् मिथुनादजायत तद आयुः... (Shat. Brah. 3.4.1.22) 
+
+In this same text (9.2.3.16), it is said that अन्नम् उ वा आयुः meaning Ayuh is Anna. We find the explanation in Nighantu (2.7) that Ayuh is  another name for Anna (food). From these references the author states that Pururava and Urvashi refer to clouds and lightning (electricity) and their union brings about rains, the rains give rise to food (Ayuh).   
+
+## References
+Category:Samvadas
+Category:Rigveda

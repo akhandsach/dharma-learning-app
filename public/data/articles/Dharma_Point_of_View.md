@@ -1,0 +1,25 @@
+DharmaWiki portal is a platform for like-minded people, to read, discuss and contribute to the knowledge base of the subjects based on Sanatana Dharma and Shastras. Generally speaking it is a public source of narratives for widely accepted knowledge base of Vaidika Dharma or Sanatana Dharma.
+
+## Content Policies of DharmaWiki
+The article and topic contributions on this portal are built keeping in mind the following must have aspects. 
+
+* **मूलसिद्धान्तसमैक्यता ॥ Integral Unity of Sanatana Dharma** : Narratives highlight the rich diversity of various traditions with emphasis on the integral unity of core principles of Sanatana Dharma.
+* **अननुवाद्यता ॥ Non-translatability**** :** English or any language is grossly insufficient to explain the numerous nuances of the divine language Samskrit. Hence words such as Moksha translated as 'liberation' or 'release from bondage' do not exactly stand for Moksha. Hence such words, viz., atma, karma, moksha, sat, chit, etc are used as is in the narratives. We keep adding to the list of such words here.
+* **परीक्षणम् ॥ Verifiability** : Articles should contain references to primary sources which are properly cited at appropriate places to ensure verifiability of references cited.
+* **रचनासौष्ठवम् ॥ Towards Diligence** : The quality goals of narratives compiled here include : good research (after indepth study) maintaining depth of the subject, towards comprehensiveness and consistency. It is to be noted that the articles are foundational to provide a discussion platform and they are gradually refined over time with more scholarly inputs. Interdisciplinary extrapolations, and psychoanalysis are strongly discouraged here.
+* **तन्त्रयुक्त्याधारः ॥ Based on Tantrayukti :** Tantrayukti is the methodology adopted by ancient seers of Bharata in composing shastra works. According to Tantrayukti, the ideal structuring of a treatise should involve at least five aspects viz. प्रयोजनम् ॥ Prayojana (main objective), अधिकरणम् ॥ Adhikarana (the topic itself), विधानम् ॥ Vidhana (enlisting the arrangement of the topics), उद्देशः ॥ Uddesha (a brief statement of introduction to a topic ) and निर्देशः ॥ Nirdesha (detailed explanation of all sub-topics). This methodological approach in the presentation of a subject matter is extremely relevant to the Dharmawiki platform. All aspects required for systematic writing are discussed by Tantrayuktis. Therefore, Dharmawiki adopts Tantrayukti as the foundation for the compilation of articles and their structure. And encourages authors to reflect the application of Tantrayukti in the presentation of their content.
+
+## Scope of DharmaWiki
+The article and topic contributions on this portal have the following additional views with an aim to include more insights in future.
+
+* **संप्रदायसिद्धविषयः ॥ Sampradayasiddha Vishaya**: Handed down from generations this dharmika tradition belonged to the people of Bharatavarsha and it is our right as well as duty to protect and proliferate it. 
+* **व्यासादिऋषिपरंपरा ॥ Vysadi-Rshi Parampara**: Articles adhere to the concepts propounded in texts given by our Rshi Parampara including Maharshi Vedavyasa's Vedas and Vedanta along with other allied traditional literature (such as Vedangas and Smrtis).  
+* **पुरुषार्थदृष्टिः ॥ Purushartha Drshti** : Revitalize the society to perform activities for achieving welfare of one and all employing the Purushartha views and not for Svartha (selfishness) or individual goals.  
+* **कालानुक्रमणिका न ॥ No Dating or Chronology of Texts** : The subject of establishing timeframes of Vedas, vedic texts, or any other allied literature will not be attempted here. Concept of Sanatanata (timelessness) of the vedic literature is adopted. 
+* **भारतीय विद्वत्समीक्षा ॥ Bharat's Scholarly Views** : The field of "Indology", which developed in the past 300 years and is largely controlled till date by western academia, is now presented here with perspectives of traditional Bharat's academia to dispel myths created by western indoctrination. Narratives include prose quotations, slokas, and mantras available in samskrit texts along with basic translation to place the perspective before the reader. Research work done by students, academic paper presentations, poster presentations, publications and conference proceedings of revered scholars are explored and used for references.
+* **संस्कृतमूलम् ॥ Original Samskrit Sources** : Articles contain the original samskrit references from traditional texts (Vedas, Vaidika Vangmaya, Puranas, Itihasas etc) with their sources cited to enable anyone with knowledge of Samskrit to personally make their interpretations.
+
+## Disclaimer
+All the information on this website is published in good faith and for general information purpose only. The development of this website is still not complete. This is a beta-launch to reach out to the users and contributors of Sanatana Dharma. Currently, many aspects such as building content, adding appropriate media, images, videos are in process. Please excuse any discrepancies in this effort and we look forward for inputs regarding the same.
+Category:About Dharmawiki
+Category:DPOV

@@ -1,0 +1,11 @@
+Vyasadi-Rshi Parampara refers to the Rshi Parampara on which rests the whole structure of Dharma, the backbone of the society of Bharatavarsha. 
+
+It is to this rshi-parampara that maharshis like Vasishtha, Vishwamitra, Chyavana, Jamadagni belonged to along with the many others who are enlightened and whose vision has led us through the ages. In their deep mental states they have received the Jnana, the fundamental truths of the Universe, which they have given to us through the Veda and Vedangas. It is not the property of the Rshis, they are the mantradrashtas to whom the Vedas were revealed. One can explain/describe about sweetness of sugarcane, but the experience is highly personal. Similarly Vedas describe about the various aspects of Brahman, and it is up to every individual to seek that experience to be revealed to him. Abrahmic concepts rest on belief system, whereas the Vedic paths rest on experience of a person. The mantras stood the test of time and experience of sadhakas; they are not just a belief system. So essentially they are not an imposition on the persons' mind but can be personally verified. 
+
+These seers took up the responsibility of transmitting this information to their children and students alike. They stressed on discipline and education and taking the lineage further thus starting a Parampara (a series) of making new rshis and maharshis. Thus came upon the teachings, which were further refined by their students which built the culture of ancient vedic civilization. From Maharshi came rshis, followed by Gurus who brought along the Guru-shishya parampara. We are the descendents of such great lineage and the need of the hour is to preserve it. 
+
+Their teachings taught everyone the proper way of thinking, moral, social, ethical values and harmony with all living beings. Ashramas and Gurukulas were the highest learning centers as well as the practice centers for all activities. 
+
+Some present day writings reveal the spurious myths infused into the janpada (folk) people stories, such as those invented to decry many Itihasa events. Some even go on to say that there was no mahabharata at all. However, the legacy of every Hindu continues embedded in their jivana vidhana as an inseparable part of the Chitta.
+Category:DPOV
+Category:About Dharmawiki

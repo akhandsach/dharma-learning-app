@@ -1,0 +1,5 @@
+Putrakameshti is a special kind of Ishti (a type of yajna) performed in ancient days in Bharatavarsha for the sake of having a male child/son. It is a kaamya-karma. In the early stages of Bharatiya society, the concept of having the son stems from the fact that protection of family depended upon the male members. At the same time issuelessness was unbearable causing severe mental affliction. Putra (पुत्रः) or the son thus has a significant place in society.  
+
+In Ramayana, upon the recommendation of Sage Vashishta, King Dasharatha of Ayodhya performed the Putrakameshti Yaga under the supervision of Rshyashringa Muni, who was an expert in Yajurveda, which has the guidelines for this prayer. After its successful completion, the Lord of Fire, Agni devata appeared and gave a bowl of sweet to the King of Ayodhya, which was provided to his three queens in order to promulgate his sons Sri Rama, Lakshmana, Bharata and Shatrughna.
+
+Category:Yajnas

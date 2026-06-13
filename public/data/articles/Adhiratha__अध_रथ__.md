@@ -1,0 +1,3 @@
+**Adhiratha** was the foster father of Karna and the chief charioteer of King Dhritrashtra. But as per Srimad Bhagavatam, Adhiratha descended from Yayati and therefore was related to Krishna. He was also the descendant of Rompad the king of Angdesh and brother-in-law of Maharaja Dashratha king of Ayodhya. His wife's name was Radha (Mahābhārata). They both had a son named Shon after Karna's adoption, who became his younger foster brother.
+
+## References

@@ -1,0 +1,7 @@
+Krishna divides the existence into two parts, सत् || sat (the real) and असत् || asat (unreal or say maya). Asat does not mean non-existence. Unreal does not mean that it does not exist at all. Asat is unreal in the sense that it appears to be there, but in fact, it is not there or it is soon not going to be there. Krishna’s test for Asat or Unreal is that something which has a beginning and an end, it was not there at some time and it is there now and will not be there at some time in future. In other words whatever appears in the domain of time/space is Asat. To him Sat and Asat are so clear. He says that Asat has no independent existence, meaning thereby that Asat can only exist on the shoulders of the Sat. Krishna knows what he is saying, and that is there is some energy source (Sat) that sustains whatever we are able to perceive, the unreal (the Asat). Krishna knew then that Sat (the unseen or the real) is the underlying energy of the Asat (the one that we can see, the Asat). Although it is Asat or say unreal, that is the part in our grasp and that is what is valuable in our every day life. Sat and Asat appear two but Asat cannot exist without Sat, Sat is the sustaining force.
+
+## References
+# http://www.krishnauniverse.com/Gita-Articles/sat-and-asat.html By Dr. Krishna Bhatta | Oct 11, 2011 | Gita Articles **Copyright © 2009 - 2017 by Dr. Krishna Bhatta. All Rights Reserved**
+Category:Vedanta
+Category:Upanishads
+Category:Bhagavad Gita

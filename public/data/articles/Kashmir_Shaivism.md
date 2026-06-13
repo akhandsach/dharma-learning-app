@@ -1,0 +1,1 @@
+Talk on Kashmir Shaivism (Pratyabhijna System) organised by Rishi Vatika

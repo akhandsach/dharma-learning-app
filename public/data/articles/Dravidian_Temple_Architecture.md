@@ -1,0 +1,13 @@
+The Dravidian style of architecture, standardized during the reigns of the Pallava and Chola dynasties have some common features or architectural parts which differentiate them from temples of other regions and styles.
+
+The Tamil Nadu temples are built in the constituent parts of *prakaras* and *gopurams*. *Prakaras* are the square or rectangular courtyards that are concentric. Most temples in Tamil Nadu have more than one courtyard while the Great temple at Srirangam, Tiruchirapalli has seven concentric courtyards.
+
+These courtyards have stone wall boundaries on all sides with gates at their centers. These gates are called *gopurams*. Sometimes one gate is built higher than the others and sometimes all four gates at four cardinal directions are of the same height, like at the Meenakshi temple, Madurai. Though the *gopurams* are just gates, they too have *vimanas* or superstructure of their own. These vimanas have many *talas*, though they are decorative and have no entrance. As the Hindu temple evolved in Tamil Nadu these *vimanas* became higher and higher and many of them have as many as eleven *talas*.
+
+The courtyards hold many shrines, mandapams and other structures. The free standing pillared halls are frequently found in the Tamil Nadu temples. The basic feature which distinguishes the temples of Tamil Nadu and Kerala from other regions in India, is that a temple in Tamil Nadu is constituted from many different free standing constituent parts and is not a continuous whole as a Chalukya or a Hoysala temple of Karnataka is. The Veera Narayana Temple in Karnataka is architecturally such a composite whole.
+
+Temple Kalyani is an integral part of any temple anywhere in India, even though in the north its tradition is now lost, but in Tamil Nadu its importance is even more. Almost every great temple celebrates float festival in these temple Kalyani, or temple tank in which the *Utsava Murti* of the main deity is taken on the shoulders of the priests and the devotees or in a floating vahana and the focus of the temple shifts for some time to the centre of the tank in which the Utsava Murti stays for awhile.
+
+There are many subsidiary buildings in great temples like temple kitchen, storage, dwellings for the priests and the other temple attendants, temple shop etc. The Ranganathar Swamy temple, Srirangam, Tiruchirapalli has even national banks and ATMs within the official premises of the temple!
+Category:Temples
+Category:Sthapatya Veda

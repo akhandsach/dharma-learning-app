@@ -1,0 +1,1 @@
+Talk on Vishnu Purana organised by Rishi Vatika

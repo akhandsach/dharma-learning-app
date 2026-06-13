@@ -1,0 +1,77 @@
+Buddhi Yoga (Samskrit : बुद्धियोगम्) is a game related to the commonly found game called Moksha Sopanam (Samskrit : मोक्ष-सोपानम्) or Snakes and Ladders (Samskrit : सर्प-सोपानम्) but uniquely interwoven with the concepts of Purushartha, Dharma, Ashramas and other Vedic concepts into each cell of the gameboard. This unique game has found mention in many Bharatiya texts and possibly has originated in Bharatavarsha. Today, countless number of people play this game all over the globe. In this series of articles presented here we bring forward to you the evolution of this game along with Jnana integrated within it since ancient times.     
+
+## परिचयः॥ Introduction
+Snakes and Ladders is game can be found in various versions with various names across Bharatavarsha. Vaikuntha Pali, Mokshapatam, Parampadam Sopaanam, Kailash Pheri, Ninyaanbe ka Pher, Karmaphal Pheri, Jnana Baazi, Jnana Chaupar, Leela are some of the names that are popularly associated to some ancient versions of this game.  However, there are Jain versions, Buddhist Versions, Sufi versions, Persian versions and many other contextual adaptations of this game as well.   
+
+There must have been an ancient version of the snakes and ladders board game which reflected the beliefs of Vedic times.  As social systems changed, the game evolved by accepting the changing beliefs and traditions of the "newer societies".  The Jain, the Sufi, the Buddhists and Islam, all accepted the beautiful design of the board game, but changed it's content and structure to suit their context.  The British also adopted the game and re-designed it as a game of morals and ethics. Their colonies adopted this new version of snakes and ladders as well, and thus was India's age old "mokshapatam", "vaikuntha pali", "jnana chaupar" and "karma pher" was replaced with the snakes and ladders that we play today.    
+
+One version of the Jnana Bazi (ज्ञान बाज़ी) board game*'*' seemed to combine the concepts of the three paths of moksha as outlined in our Vedic philosophy.  This suggested to us that the game must have been adopted and played during "Vedic India".  Thus implying that the game was possibly created before the Jain one which is dated around 10th century AD.  We have attempted to recreate this board game, with it's associated narratives and interpretations under the name Buddhi Yoga.   This version, although being very similar to the "Leela" published by Harish Johari, has it's unique differences as well.
+
+## बुद्धियोगम् ॥ Buddhi Yoga
+Buddhi Yoga (Samskrit : बुद्धियोगम्) refers to the Yoga of Understanding, as explained by Sri Krishna in the Bhagavad Gita. <blockquote>तेषां सततयुक्तानां भजतां प्रीतिपूर्वकम् | ददामि बुद्धियोगं तं येन मामुपयान्ति ते || (Bhag. Gita. 10.10) </blockquote>Meaning : To these who are thus in a constant union with Me, and adore Me with an intense delight of love, I give the Yoga of understanding by which they come to Me. Sri Aurobindo (Bhag. Gita. 10.10)
+
+Thus does Sri Krishna suggest the Buddhi Yoga (The Yoga of Understanding) to his disciples to help them attain the final stage of Moksha.     
+
+## मोक्ष-सोपानम् ॥ Moksha Sopanam
+Buddhi Yoga is the ancient version of the Snakes and Ladders game that we use in the present day. Based on the Moksha Sopanam, this design encodes ancient wisdom comprising of three knowledge paths or Margas of Moksha (मोक्षमार्गः) namely    
+# Tantra (तन्त्रम्) or Jnana (ज्ञानमार्गः)    
+# Karma (कर्ममार्गः)     
+# Bhakti (भक्तिमार्गः)     
+This design comprises of 72 cells with each cell of the game board inscribed with terms from the vedanta shastras which are very relevant to the present day life. The placement of the specially inscribed words depicts the life of man, in different ashramas, at different mental and physical states taking different paths all within the framework of the Purusharthas, in their journey to understand life and attain Moksha. In a grand perspective, the gameboard represents the Kshetra (location), the player is the "manifestated form" (Man, the Jivatma embodied in an Upadhi formed from Prakrti) and the snakes represent a person's weaknesses (passions) and susceptibilities.  The players being a form of Prakriti are therefore referred to in the female gender during the discussion on the game.    
+
+The snake in last cell suggests that the game was played differently than the "race to win" game that we know today.  The rules of play as mentioned by Harish Johari in Leela and first hand encounters with some learned people in Varanasi helped in formulating the rules of play for Buddhi Yoga.    thumb|344x344px|Fundamental principles of the philosophy of Tantra.
+
+## Tantra (तन्त्रम्) or Jnana Marga (ज्ञानमार्गः)
+Tantra, in the Indian context means a system, a technique, an instrument, a practice.  The practices are detailed in our scriptures called Agamas (आगमः). In the Tantra (तान्त्रः) philosophy, our thoughts, matter, everything we perceive through our five senses, our nervous system with it’s electrical pulses (नाडी) are all a part of the  dance of the cosmic energies, the Shiva and the Shakti.
+
+The fundamental concepts of this "system" are beautifully encoded within the game board.  The eight siddhis (सिद्धि), the nine shaktis (नवदुर्गा) or forms of the devi, the 72000 nadis (नाडी) and the kundalini (कुण्डलिनी) are fundamental to the design of the game board. The game board itself is like a "weave" of rows and columns (warp and weft).  As the player moves her marker over the game board she almost simulates the actual shuttle that moves between the threads, landing on some and skipping others she weaves her own unique pattern, her signature maybe, on the game board.
+
+Etymologically tantra refers to expanding beyond the material realm. Practitioners of Tantra aim to finally attain moksha through practicing the highest vidya (विद्या).  
+
+### Game Board
+The words on the game board are also beautifully arranged to embed within them the foundations of the path of knowledge, and inspire the player to inquire and "insplore" (search within). 
+
+For example, the cells of *jnana* and *suvidya* are on opposite ends of the first row of *vanaprastha*.  While suvidya takes the player directly to rudraloka the abode of Shiva, jnana takes the player to anandaloka revealing to him the sat-chit-ananda nature of the brahman.   Just above *suvidya* is viveka.  This arrangement reminds the player of the belief in the kaula tradition that there are two paths to knowledge, that of *jnana* which is gained through *shabda* and that of *viveka* which is gained through insight from within. There are many such interesting patterns on the board game which the curious player can explore.  Specially beautiful, in the context of the 67th verse of Saudarya Lahari is the position of prakriti, rudraloka, the 3 guna's (satta, raja, tama) and aham or ahamkara and the subsequent snake to maya, describing the reflection of Shambhu (Para-Shiva) in Prakriti (Para-Shakti) giving rise to "aham" the seed of the world of names and forms.
+
+## Karma Marga (कर्ममार्गः)
+thumb|344x344px|The four stages of life.  The dharma ashrams.
+The path of unselfish action is the karma marg to moksha.  We act in the context of our social role.  There are four stages (आश्रम) in our life; the student (ब्रह्मचर्याश्रम), the householder (गृहस्थाश्रम), the retired (वानप्रस्थाश्रम) and the renunciate (सन्यास).  These stages are represented by two rows each on the game board in the above sequence.  Thus the first two rows or eighteen cells represent the stage of the student, the next eighteen cells represent the stage of the householder and so on.   
+
+The number eighteen occurs recursively in the Mahabharat (महाभारत).  The war lasted for eighteen days, there are eighteen chapters in the epic, the Bhag. Gita. contains eighteen chapters,  eighteen armies fought the battle, eighteen warriors survived this war, and many more.  The eight columns, nine rows, the six faces of the dice, also encode numerological significance relevant to karmayoga (कर्मयोग).  Even the cell numbers and their contents seem to be beautifully related.  For example maya (माया) is cell number 2 which represents duality, anger (क्रोध) is cell number 3 which is the number of fire, and so on. 
+
+The game board thus becomes a representation of the life and the experiences of the player.  As she moves her counter on the game board, drawn towards the ladders and weary of the snakes, she experiences the ups and downs of life.  This beautifully relates to her real life experiences and simulates her karmic path. 
+
+### Game Board
+The cells on the game board also embed ideologies, goals and guiding principles for the karmayogin (कर्मयोगिन).  The cells of tapa (तप), harsha (हर्षः), karma (कर्म), parmartha (परमार्थ), and sudharma (स्वधर्म / सुधर्म) create a beautiful perimeter to the plane of action for the player.  The world of karma is also a world of decisions, where one needs to choose between one or the other.  The opposites of dharma (धर्म), adharma (अधर्म), susangati (सुसंगति), kusangati (कुसंगति), suvidya (सुविद्या), avidya (अविद्या) bring out this karmic dilemma.  Adjacent cells, and cells six places away reveal aspects of the reference cell beautifully.  For example, consider the cell daya (दया).  The cells of dana (दान), maya (माया), dvesa (द्वेष), harsa (हर्ष), brahmaloka (ब्रह्मलोक), svarga (स्वर्ग) and gandharva (गन्धर्व) all relate with daya, and all contribute to the experience of daya in the player.  
+
+Such and many other secrets inspire the player to discover them and in-turn learn about the nuances of karmayoga in her life.
+
+## Bhakti Marga (भक्तिमार्गः)
+thumb|344x344px|Bhakti Yoga
+Bhakti marga or Bhakti Yoga is conspicuous by the absence of any other supporting cell other than the cell of bhakti itself.  Narada (son of Brahma), had in his Bhakti Sutra, famously proclaimed that bhakti begets itself, or bhakti is it's own fruit (स्वयं फलरूपतेति ब्रह्मकुमारः).  It is very uniquely positioned on the tri-guna side of the game board signifying that bhakti applies to the believers of saguna (सगुण) devotion. 
+
+### Game Board
+The ladder from Bhakti leads directly to Vaikuntha, which is also the starting point of this game, revealing that bhakti is eternal (अमृतस्वरूपा च).  Narada in his Bhakti Sutra, defines the nature of Bhakti to be the nature of immortality.  Vaikuntha is a special cell on the game board.  The player can only leave this cell on a throw of 6 which signifies her engagement with the six passions (षड्रिपु).  Thus, she is in an eternal state of bliss until she throws a six.  The Sutra's 4-6 describe her divine experience ( यल्लब्ध्वा पुमान्सिद्धो भवत्यमृतो भवति तृप्तो भवति ॥४॥ यत्प्राप्य ना किञ्चिद्वाञ्छति न शोचति न द्वेष्टि न रमते नोत्साही भवति ॥५॥यज्ज्ञात्वा मत्तो भवति स्तब्धो भवत्यात्मारामो भवति ॥६॥).  Swami Chinmayananda in his commentary writes - "Having gained this Supreme Devotion, the devotee attains perfection and immortality and becomes extremely satisfied [4].  Having attained which (Devotion) she cares for nothing, never grieves never hates, never delights in anything and she finds no urge or enthusiasm for sense enjoyment [5].  Having known which (Devotion) one becomes intoxicated, silent, and enjoys in the Self [6]."  Thus is the nature of Bhakti beautifully enunciated.
+
+Bhakti is the last cell on the 6th row and the last landing point in the vanaprastha ashram (वानप्रस्थाश्रम). It is also the "gate to sanyas" (सन्यास आश्रम).  Narada's Bhakti Sutras 10-12 beautifully encode this experience of the player (अन्याश्रयाणां त्यागोऽनन्यता ॥१०॥ लोकवेदेषु तदनुकूलाचरणं तद्विरोधिषूदासीनता च ॥११॥ भवतु निश्चयदाढ्यादूर्ध्वं शास्त्ररक्षणम् ॥१२॥लोकोऽपि तावदेव भोजनादिव्यापारस्त्वाशरीरधारणावधि ॥१४॥) Swami Chinmayananda in his commentary writes - "Reununciation of all other supports is whole-heartedness (in Devotion) [10].  To perform all secular and religious functions that are congenial to Him and (to have) total indifference to all actions that are hostile to Him.. (that is "indifference") [11]. After having thus decided to live the life of whole hearted devotion, let there be protection of the Scriptural teachings [12]. The worldly duties in the various social contexts are also to be performed only to that extent (so long as the consciousness of the external world continues with us), but activities such as eating, etc., indeed will continue as long as the body exists [14]." Having thus conditioned the player, the Sutra's insist that the devotee should be fully conscious of her physical body and entirely aware of it's conditions.  she must obey faithfully, the strict injunctions of the Sastras (शास्त्र).  This will help her grow in her inner devotion and total dedication to the Lord.  The Lord Himself, insists  upon this when he says "तस्माच्छास्त्रं प्रमाणं ते कार्याकार्यव्यवस्थितौ। ज्ञात्वा शास्त्रविधानोक्तं कर्म कर्तुमिहार्हसि।"
+
+In the very next Sutra Sri Narada warns of the consequences if this condition is not followed.  He says "अन्यथा पातित्यशङ्कया"; "Or else there is the fear of a fall (from the Spiritual path)".  The snake of ahankara (अहङ्कारः) immediately above the cell beautifully encodes this warning, dropping the player down to maya.  
+
+The cell of viveka (विवेक) and the opposite end of the 6th row encodes the narrative of Udhava and the Gopis of Vrindavan, and many more stories related to bhakti are hidden in different cells of the game board.
+
+## Rules of Play
+This is a game where the player must identify very intimately with her marker, as if she herself is moving on the game board.  As she moves, she also realises that she is somewhat like a tourist.  Exploring the places (cells) around the one's she is landing on.  In essence, she tries to experience each cell that the roll of the dice takes her to.  She can either use a personal jewellery, a lucky charm, or a simple stone that she has established as herself (प्रतिष्ठति), as her marker on the game board.
+# She starts her journey from Vaikuntha, by placing her marker here [cell #68]
+# She rolls the dice.  A role of 6 on the face of the dice, means she gets to roll another turn.
+# She can only leave Vaikuntha on a roll of 6, which will land her directly in Moha [cell #6]
+# If she rolls 3 consecutive 6's, it is called a transition (भाव) throw. She must go back to the original position where she started her turn from, and the next player gets a turn.
+# If she throws a transition starting in Vaikuntha, she is believed to have divine birth and starts from janma (cell #1) as an avatar (अवतार). 
+# The face of the dice suggests how many places she must move her marker.  Each player throws a turn on the dice and moves her marker, "insploring" her "insperience" for each cell.
+# The players may stop or leave as they feel comfortable.
+
+## Buy Buddhi Yoga
+Physical board games are available [http://buddhiyoga.in/site/shop/ here] for a more physical, social and interactive experience.
+
+The game is available in the iOS and Android App and Play stores respectively.  It is a free download and an ad-free experience.  The platform provides for community interaction through blogs and associated comments.  The readers are invited to download and share their experiences as relevant.
+
+## References

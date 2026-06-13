@@ -1,0 +1,65 @@
+Arishta lakshanas (अरिष्ट लक्षणानि) are certain ominous signs and symptoms observed in and around the patient that indicate patient's imminent death. Knowledge of Arishta lakshanas is considered to be the important tool for a Vaidya to predict lifespan and approximate duration of remaining life of a patient. Knowledge of Arishta lakshanas is thus believed to be the part of clinical prognosis exclusively described in Ayurveda and is certainly the example of superior intelligence, keen observation and deep study of Sharira (शारीरम्। normal anatomy and physiology) of patient by our ancient Ayurveda scholars. It is a unique contribution of Ayurveda towards clinical diagnosis which is disappearing faster from the technology led medical science of today's world.
+
+## परिचयः॥ Introduction
+Ayurveda is a systematic knowledge of medicine which defines Ayu (आयुः। life) as a combination of sharira (शरीरम्), indriyas (इन्द्रियाणि), satva (सत्वम्) and atman (आत्मा) with an objective of maintaining dhatus (धातवः) in their equilibrium state. Each section of classical Ayurveda treatises focuses on the betterment of this Ayu. The beginning of Ayu and the end of this Ayu is therefore should be known precisely. It is believed that, Ayu starts with union of male and female bijas (बीजम्। gamete or seed) and Atman in the womb of the mother. In this way the physical body development and growth starts. After a certain period the growth stops and degeneration of the mortal components of life named 'Sharira' starts. Life ends when the union of Sharira, Atman, Indriya and Manas dissociates. Thus, one has to keenly observe the various stages of Ayu and use Ayurveda knowledge accordingly to achieve maximum benefits. In this context few sections in Classical Ayurveda Samhitas were designed to tell the Ayu (life span) of the diseased person with the help of arishta. Arishtas are believed to be the fatal signs of death which definitely occur in diseased person before death just like flowers indicates upcoming fruit and smoke indicates agni (अग्निः।fire) and cloud indicate rain. Various Ayurveda acharyas have described these ominous signs which indicate bad prognosis and imminent end of one's Ayu so as to help Vaidya to plan or stop treatment. Few thousand years ago, when advanced technology was not used in the practice of medicine and diagnosis was used to be merely clinical, this knowledge of Arishta lakshanas enabled practitioners to foresee the imminent death and act accordingly. 
+
+## अरिष्ट शब्दस्य परिभाषा॥ Definition of Arishtas
+Acharya Vagbhata has defined Arishtas as the signs and symptoms which are definite indicator of death. He has mentioned the synonym Rishta (रिष्टम) for Arishta lakshanas.<blockquote>रूपेन्द्रियस्वरच्छायाप्रतिच्छायाक्रियादिषु।।4।।</blockquote><blockquote>अन्येष्वपि च भावेषु प्राकृतेष्व्निमित्ततः। विकृतिर्वा समासेन रिष्टं तदिति लक्षयेत् ।।5।। (Asht. Hrda. 5.4-5) </blockquote><blockquote>rūpendriyasvaracchāyāpraticchāyākriyādiṣu।।4।।</blockquote><blockquote>anyeṣvapi ca bhāveṣu prākr̥teṣvnimittataḥ। vikr̥tirvā samāsena riṣṭaṁ taditi lakṣayet ।।5।।<br>
+</blockquote>Meaning:
+
+## आयुर्वेद संहितायाम् तेषाम् वर्णनम्॥ Place in Ayurveda samhitas
+Ayurveda treatises have stressed that, before going to start treatment of any disease physician should assess for Arishṭa lakshanas. Thus, even before expounding the treatment for various rogas (रोगाः), most of the Samhitas have dedicated either an entire Sthanam (स्थानम् section) or a part of it for offering the knowledge of Arishta lakshanas. Different acharyas of Ayurveda described them in different sthana of their text. Acharya Charaka contributed a separate sthana for assessment of Arishṭa lakshanas as Indriyasthanam (इन्द्रियस्थानम्).  
+
+Acharya Sushruta in sutrasthanam (सूत्रस्थानम्) of Sushruta Samhita & Acharya vagbhata in sharirsthanam (शारीरस्थानम्) of Ashtanga Hrdayam. All of them have emphasized that a physician must keep a keen observation on such fatal signs to achieve success in treatment, fame and prosperity. 
+
+### चरक संहितां इन्द्रिय स्थानम्॥ Indriya sthana of Charaka Samhita
+Indriysthana is a unique section of Charaka Samhita, the Brihatrayi famous for its Chikitsa aspects. The inclusion of the Indriya Sthana before Chikitsa Sthana have added much more clarity and importance to the latter .
+
+The word Indra (इन्द्रः) means Prana (प्राणः). Chakrapani (चक्रपाणि) says it is Aatmavaachi (आत्मवाची) i.e refers to 'Atman' (आत्मन्) in this context. In perspective of Indriya Sthana ‘Indriya’ means the signs and symptoms of life approaching its end. Such signs and symptoms that can be directly observed by visual and other faculties are described in this Sthana.
+
+Acharya Charaka, in the Sutra Sthana states that a physician loses his fame, learning and wealth by attempting to cure patients with incurable illnesses.The importance of Indriya Sthana is for the selection of a curable patient. Each of the chapter differs in its intention and approach. A detailed  introspection is needed to understand the reasons for these different approaches. Very few attempts have been done to evaluate the approach used in Indriya Sthana. The applications regarding this important Sthana need to be reviewed in the light of contemporary aids of medical science. The details of examinations mentioned and their possibilities are also another area concerned. Since Indriya Sthana is not brought to focus, it becomes important to understand the literary as well as observational applications of this Sthana.  
+
+## अरिष्ट ज्ञानस्य लाभः॥  Importance of Arishta knowledge
+Ayu-lakhshanas (आयुलक्षणानि। sings of life) were also stated and if physician see those (Ayu-lakshana) signs and symptoms then without wasting any time a physician should start his treatment. Hence a physician must have a keen observation in identifying the arishta lakshana (अरिष्ट लक्षणानि) as well as ayulakshana (आयुलक्षणानि).
+
+Acharya Vagbhata in Ashtanga Hrdayam says that, <blockquote>अरिष्टं नास्ति मरणम् दृष्टरिष्टं च जीवितम् । (Asht. Hrda. 5.2)</blockquote><blockquote>ariṣṭaṁ nāsti maraṇam dr̥ṣṭariṣṭaṁ ca jīvitam ।</blockquote>Similarly Achrya Charaka mentions that, <blockquote>अप्येवं तु भवेत् पुष्पं फलेनाननुबन्धि यत् । फलं चापि भवेत् किञ्चिद्यस्य पुष्पं न पूर्वजम् ।।</blockquote><blockquote>न त्वरिष्टस्य जातस्य नाशोऽस्ति मरणादृते । मरणं चापि तन्नास्ति यन्नारिष्टपुरःसरम्।।  (Char. Samh. 2.4-5)</blockquote><blockquote>apyevaṁ tu bhavet puṣpaṁ phalenānanubandhi yat । phalaṁ cāpi bhavet kiñcidyasya puṣpaṁ na pūrvajam ।।</blockquote><blockquote>na tvariṣṭasya jātasya nāśo'sti maraṇādr̥te । maraṇaṁ cāpi tannāsti yannāriṣṭapuraḥsaram।।</blockquote>Meaning: The flower may sometimes be devoid of fruits and sometimes even the fruits may be produced without being preceded by flowers. But once an arishta manifests, it doesn’t depart without ensuing in death. Conversely, death can not occur without earlier manifestation of arishta.
+
+## अरिष्टाभासः॥ Illusion about Arishtas and failure to identify them
+Acharya Vagbhata has clearly mentioned that one may fail to recognize the Arishtas or differentiate them from clinical features of diseases. Arishta like clinical features might be seen even when the Doshas (दोषाः) are present in even more than their excess levels.<blockquote>दोषाणामपि बाहुल्याद्रिष्टाभासः समुद्भवेत् । (Asht. Hrda. 5.3)</blockquote><blockquote>doṣāṇāmapi bāhulyādriṣṭābhāsaḥ samudbhavet ।</blockquote>This inability to identify and differentiate between Arishtas and clinical features of excessive levels of Doshas might cause physician to land in difficult situation. This happens because of Prajnaparadha (प्रज्ञापराधः) of the physician making the Vaidya and Rugna (रुग्णः। patient or diseased) suffer. Arishtas are wrongly interpreted due to subtle nature of these symptoms, ignorance or stupidity of the physician or because such symptoms are very closely followed by the death of the patient.<blockquote>मिथ्यादृष्टमरिष्टाभमनरिष्टमजानता| अरिष्टं वाऽप्यसम्बुद्धमेतत् प्रज्ञापराधजम्||६|| (Char. Samh. 2.6)</blockquote><blockquote>mithyādr̥ṣṭamariṣṭābhamanariṣṭamajānatā| ariṣṭaṁ vā'pyasambuddhametat prajñāparādhajam||6||</blockquote>Meaning: An ignorant person may sometimes wrongly perceive symptoms presenting in an individual as arishta lakshana and sometimes he may even not recognize the arishta lakshana presenting in an individual, all this is the result of intellectual errors
+
+## अरिष्ट निवृत्ति उपायाः॥ Ways to overcome Arishta laxnas
+Acharya Sushruta has briefly mentioned the exceptions for every death followed by appearance of Arishta lakshanas. He says that even though the death is certain once Arishtas appear, there are certain exceptions or ways which have capacity to ward off this impending death.  <blockquote>ब्राह्मणैस्तत् किलामलैः | रसायनतपोजप्यतत्परैर्वा निवार्यते ||५|| (Sush. Samh. 28.5)  </blockquote><blockquote>brāhmaṇaistat kilāmalaiḥ | rasāyanatapojapyatatparairvā nivāryate ||5||</blockquote><blockquote>रिष्टेऽपि मरणनिवृत्तिमुपायविशेषैराह- ब्राह्मणैरित्यादि| किलशब्दोऽत्रागमार्थं सूचयति; एवं किल आगमे प्रतिपादितमित्यर्थः| अमलैरिति रागादिदोषरहितैः| ब्राह्मणेभ्योऽपरानपि दर्शयन्नाह- रसायनतपोजप्येत्यादि|- रसायनपरा इति स्वभावव्याधिनिवारणविशिष्टौषधचिन्तकाः, ते रसवीर्यौषधप्रभावेण मरणं निवारयन्ति| तथा तपःपराः तपस्विनः, तेऽपि विशिष्टतपःप्रभावेण मरणं निवारयन्ति | जप्यपराः सिद्धमन्त्रचिन्तकाः, तेऽपि मन्त्रशक्तियुक्ताः पञ्चत्वं निषेधयन्ति | एतच्च नियतानियतरिष्टविषयं ज्ञेयम्||५|| (Dalhana's Commentary on Sush. Samh. 28.5) </blockquote><blockquote>riṣṭe'pi maraṇanivr̥ttimupāyaviśeṣairāha- brāhmaṇairityādi| kilaśabdo'trāgamārthaṁ sūcayati; evaṁ kila āgame pratipāditamityarthaḥ| amalairiti rāgādidoṣarahitaiḥ| brāhmaṇebhyo'parānapi darśayannāha- rasāyanatapojapyetyādi|- rasāyanaparā iti svabhāvavyādhinivāraṇaviśiṣṭauṣadhacintakāḥ, te rasavīryauṣadhaprabhāveṇa maraṇaṁ nivārayanti| tathā tapaḥparāḥ tapasvinaḥ, te'pi viśiṣṭatapaḥprabhāveṇa maraṇaṁ nivārayanti | japyaparāḥ siddhamantracintakāḥ, te'pi mantraśaktiyuktāḥ pañcatvaṁ niṣedhayanti | etacca niyatāniyatariṣṭaviṣayaṁ jñeyam||5||</blockquote>This means Arishta are always resulted by death unless warded off by following factors : 
+* Blessings of the holy pure hearted Brahman (ब्राह्मणः).
+* With the help of divya rasayana aushdhi (दिव्य रसायन औषधी । Rejuvenation medicine)
+* With the grace of siddha yogi (सिद्धयोगी)
+
+## अरिष्ट भेदाः॥ Types of Arishtas
+Arishtas are classified in 2 types on the basis of certainty of death.  
+
+### स्थायी अरिष्टानि॥ Sthayi arishta
+Sthayi arishta means arishta lakshana which are definite signs of death. E.g smoke before fire these symptoms associated with physical constituent
+
+### अस्थायी अरिष्टानि॥ Asthayi arishta
+Asthayi arishta means arishta lakshan which are not always resulted in diseased; for e.g. Cloud before rain, Charaka acharya stated sometimes vitiated doshas shows symptoms similar to arishta lakshan but they will disappear with dosha saamya avashtha (दोष साम्यावस्था । state of equilibrium of doshas).
+
+## विविधानि अरिष्ट लक्षणानि॥ Various Arishtas  
+
+One can find various Arishta lakshanas described in Ayurveda classics under multiple categories  as listed below,   
+# वर्ण अरिष्ट । Varna Arishta
+# स्वर अरिष्ट । Swara Arishta
+# गन्ध अरिष्ट । Gandha Arishta
+# रस अरिष्ट । Rasa Arishta
+# स्पर्श अरिष्ट । Sprasha Arishta
+# इन्द्रिय अरिष्ट । Indriya Arishta
+# पूर्वरूप अरिष्ट । Arishtas related to Purvarupas : Ominous prodromal symptoms of diseases 
+# आयु मात्रा विषयक् अरिष्ट । Duration specific Arishtas
+# व्याधीनियत अरिष्ट । Disease specific Arishtas
+
+## Significance of Arishta lakshanas in today's era
+Even though all of the determinants (i.e., signs and symptoms) cannot be explained by rational scientific parameters (as evident by the references above to paranormal and occult sciences), some of these signs and symptoms have been documented and reported as having been experienced by people in various parts of the world. Within the treatise Charaka Samhita, physicians are instructed to thoroughly examine the patient for certain signs that indicate terminal illness and investigate using biomarkers. The treatise then advises physicians to stop any therapeutic treatment being given to such terminal patients and provide them palliative care instead. In the present era, with advancements in medical sciences, many arishta lakshanas are well treatable and cannot be considered as "predictors" of death as they used to even a few centuries back. However, these signs and symptoms could serve as important indicators of prognosis of disease and therefore, would be helpful in prompt management to save life of patients. 
+
+In today’s clinical practices estimating prognosis typically receives less attention than diagnosing and treating disease. Yet, many clinical decisions are not fully informed unless the patient’s prognosis is considered. Critical prognostic information, physicians will be better equipped to make clinical decisions that are aligned with their patients’ values, preferences and goals of care.
+
+## References
+
+Category:Ayurveda

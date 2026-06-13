@@ -1,0 +1,28 @@
+Relationship of Brahman and Atman, the premises about their unity or distinctness forms the basis of various schools of thought in Vedanta thus developing the Sampradayas. The thought process regarding Brahman range from total absence of the Charvakas to distinct existence of Atman and Brahman as believed in Dvaita Sampradaya. 
+
+## Unity of Brahman and Atman
+According to the Advaita siddhanta the impersonal Brahman is  essentially identical with the Atman. Many primary expressions of human nature such as, fear, sorrow, delusion etc are explained as ignorance of the being.
+
+### =Brhdaranyaka Upanishad=
+One of the earliest references to the unity of the Atman and Brahman and the way to such realization is found mentioned in the Brhadaranyaka Upanishad. In the context of explaining about fear, the Upanishad says<blockquote>कस्माद्ध्यभेष्यत् । द्वितीयाद्वै भयं भवति ॥ बृह. १,४.२ ॥ (Brhd. Upan. 1.4.2)</blockquote>Meaning: For what was there to fear? It is from a second entity that fear comes.
+
+Nothing short of realization of identity can banish all grief and misery, 'a second entity indeed causes fear'. The means of removing this false notion that caused the fear, was, the right knowledge of the Self. The second entity is merely projected by ignorance, when it is not perceived at all, it cannot cause fear. Thus the notion of a second entity was removed by the knowledge of Unity; it was non-existent.
+
+Brhdaranyaka Upanishad also lays emphasis of the Unity of Jiva and Brahman (2.4.6-9). In the Yajnavalkya and Maitreyi Samvada the very nature of Atman is defined. All the brahmanas, kshatriyas, the whole world, the countless devatas and all beings are the form of Atman only.
+### =Isavasyopanishad=
+Isopanishad or Isavasyopanishad ascertains that when the second entity is not perceived at all, one becomes free of all grief<blockquote>यस्मिन्सर्वाणि भूतान्यात्मैवाभूद्विजानतः । तत्र को मोहः कः शोक एकत्वमनुपश्यतः ॥ ७ ॥ (Isav. Upan. 7)</blockquote>When to the man of realization all beings become the very Self, then what delusion and sorrow can be there for that seer of Oneness.
+### =Mundakopanishad=
+Their apparent difference (Brahman and Atman), but essential unity is admirably presented in the following oft-quoted mantras from Mundakopanishad<blockquote>द्वा सुपर्णा सयुजा सखाया समानं वृक्षं परिषस्वजाते । तयोरन्यः पिप्पलं स्वाद्वत्त्यनश्नन्नन्यो अभिचाकशीति ॥ १ ॥</blockquote><blockquote>समाने वृक्षे पुरुषो निमग्नोऽनीशया शोचति मुह्यमानः । जुष्टं यदा पश्यत्यन्यमीशमस्य महिमानमिति वीतशोकः ॥ २ ॥ (Mund. Upan. 3.1.1-2)</blockquote>Summary : Two birds of beautiful plumage (Atman and Brahman) who are friends and always joined together, cling to the same tree (the body). One of them (the Atman) eats sweet (and bitter) fruits (experiences the results of its past work), but the other only looks on without eating. On the same tree (wholly identified with the body), the individual Atman (Purusha) remains drowned (stuck); is overwhelmed by his impotence and suffers. When is sees the other, the Infinite Being (Isham) and His glory, then it becomes liberated from sorrow.
+### =Mandukya Upanishad=
+Mandukya Upanishad's Mahavakya reinforces the concept of unity of Atma and Paramatma.<blockquote>सर्वं ह्येतद् ब्रह्मा अयमात्मा ब्रह्म सोऽयमात्मा चतुष्पात् ॥ २ ॥(Mand. Upan. 2)</blockquote>All this is surely Brahman. The Self os Brahman. The Self, such as It is, is possessed of four quarters.
+### =Kathopanishad=
+In Kathopanishad, the concept of Brahman is discussed when Nachiketa presses Yama to reveal to him the supreme secret, Yama says <blockquote>यदेवेह तदमुत्र यदमुत्र तदन्विह । मृत्योः स मृत्युमाप्नोति य इह नानेव पश्यति ॥ १० ॥</blockquote><blockquote>yadeveha tadamutra yadamutra tadanviha । mr̥tyoḥ sa mr̥tyumāpnoti ya iha nāneva paśyati ॥ 10 ॥</blockquote><blockquote>मनसैवेदमाप्तव्यं नेह नानाऽस्ति किंचन । मृत्योः स मृत्युं गच्छति य इह नानेव पश्यति ॥ ११ ॥ (Kath. Upan. 2.1.10-11)</blockquote><blockquote>manasaivedamāptavyaṁ neha nānā'sti kiṁcana । mr̥tyoḥ sa mr̥tyuṁ gacchati ya iha nāneva paśyati ॥ 11 ॥ (Kath. Upan. 2.1.10-11)</blockquote>Summary : The entity that exists in all beings from Brahma down to immovable and appears as non-Brahman owing to limiting factors (Jiva) is different from Supreme Brahman, is subject to birth and death. What indeed is here, is there and what is there is here. He who sees as though there is difference between the two, goes from death to death. This is to be attained through the Manas only. There is no diversity between the Self and Supreme Brahman.*'*'
+### =Bhagavadgita=
+Further in the Bhagavadgita, Shri Krishna reminds us of the essential identity between Jivatma and the Supreme<blockquote>ममैवांशो जीवलोके जीवभूतः सनातनः । मनःषष्ठानीन्द्रियाणि प्रकृतिस्थानि कर्षति ॥१५- ७॥ (Bhag. Gita. 15.7)</blockquote>It is verily a part of Mine which, becoming the eternal Jivatma (individual Atman) in the world of life, draws (to itself) the sense organs with the Manas as their sixth, placed in Nature.
+
+The Upanishads discuss the metaphysical concept of Brahman in many ways, such as the Saṇḍilya vidya in Chandogya Upanishad (Adhyaya 14). The Saṇḍilya vidya on Brahman is not unique to Chandogya Upanishad, but found in other ancient texts such as the Satapatha Brahmana (10.6.3). It asserts that Atman (Soul, Self inside man) exists, the Brahman is identical with Atman, that the Brahman is inside man – thematic quotations that are frequently cited by later schools of Hinduism and modern studies on Bharat's philosophies.
+
+## References
+
+Category:Vedanta
+Category:Sampradayas

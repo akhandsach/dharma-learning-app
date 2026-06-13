@@ -1,0 +1,80 @@
+Avayavas (Samskrit : अवयवाः) are one of the sixteen Padarthas enumerated by Gautama Maharshi in the Nyaya sutras. Knowledge and understanding of these sixteen Padarthas bring about Nihshreyas according to the Nyaya Darshana.  Avayavas are Statements or Premises required to prove a concept. Since five such statements are collectively required they are termed as "Factors" on which an an assumption or inference can be proved. 
+
+It is noteworthy to mention that Pramanas or the means of valid cognition are found to be significant concepts among these factors.
+
+## पञ्च-अवयवाः ॥ Pancha Avayavas
+The five Avayavas as given by Gautama maharshi in his Nyaya Sutras are described as given below along with the Vatsyayana Bhashya that explains each case.
+
+### प्रतिज्ञा ॥ Pratijna : Statement of Proposition
+Statement of Proposition (first enunciation) to be proved is called Pratijna and is based on Shabda pramana.
+:साध्यनिर्देशः प्रतिज्ञा॥३३॥ {प्रतिज्ञालक्षणम्} (Nyay. Sutr. 1.1.33)
+:sādhyanirdēśaḥ pratijñā॥33॥ {pratijñālakṣaṇam} (Nyay. Sutr. 1.1.33)
+Meaning : Pratijna, the statement of proposition consists in the assertion of what is to be proved (Sadhya). Vatsyayana Bhasya elaborates as follows
+:प्रज्ञापनीयेन धर्मेण धर्मिणो विशिष्टस्य परिग्रहवचनं प्रतिज्ञा। प्रतिज्ञा साध्यनिर्देशः । अनित्यः शब्दः इति॥
+:prajñāpanīyēna dharmēṇa dharmiṇō viśiṣṭasya parigrahavacanaṁ pratijñā। pratijñā sādhyanirdēśaḥ । anityaḥ śabdaḥ iti॥
+Pratijna is that assertive statement which mentions the Subject which is intended to be proved by reasoning. Pratijna consists of the mention of that property (of the Subject) to be proved. (As an example of this, we have the statement) "sound is non-eternal". (Page No 63 of )
+
+It is of two kinds described in the bhashyam for Udaharana.
+
+### हेतुः ॥ Hetu : Statement of Reasoning
+Statement of Reasoning which establishes the conclusion on the strength of the similarity of the case in hand with known similar or opposite examples or illustrations. It is based on Anumana pramana.<blockquote>उदाहरणसाधर्म्यात्साध्यसाधनं हेतुः॥३४॥ {हेतुलक्षणम्} तथा वैधर्म्यात्॥३५॥ {हेतुलक्षणम्} (Nyay. Sutr. 1.1.34 and 35)</blockquote><blockquote>udāharaṇasādharmyātsādhyasādhanaṁ hētuḥ॥34॥ {hētulakṣaṇam} tathā vaidharmyāt॥35॥ {hētulakṣaṇam} (Nyay. Sutr. 1.1.34 and 35)</blockquote>Hetu is that (statement or sentences) which demonstrates, proves the thing to be known (Sadhya), through its similarity and through dissimilarity to the Udaharana (an example, a Corroborative Instance).<blockquote>उदाहरणेन सामान्यात्साध्यस्य धर्मस्य साधनं प्रज्ञापनं हेतुः । साध्ये प्रतिसंधाय धर्ममुदाहरणे च प्रतिसंधाय तस्य साधनतावचनं हेतुः उत्पत्तिधर्मकत्वादिति । उत्पत्तिधर्मकमनित्यं दृष्टमिति । उदाहरणवैधर्म्याच्च साध्यसाधनं हेतुः । कथम् अनित्यः शब्दः उत्पत्तिधर्मकं नित्यं यथा आत्मादिद्रव्यनिति ॥ (Vats. Bhas. Nyay. Sutr. 1.1.34 and 35) (PDF Pages 88 and 89 of )</blockquote><blockquote>udāharaṇēna sāmānyātsādhyasya dharmasya sādhanaṁ prajñāpanaṁ hētuḥ । sādhyē pratisaṁdhāya dharmamudāharaṇē ca pratisaṁdhāya tasya sādhanatāvacanaṁ hētuḥ utpattidharmakatvāditi । utpattidharmakamanityaṁ dr̥ṣṭamiti । udāharaṇavaidharmyācca sādhyasādhanaṁ hētuḥ । katham anityaḥ śabdaḥ utpattidharmakaṁ nityaṁ yathā ātmādidravyaniti ॥ (Vats. Bhas. Nyay. Sutr. 1.1.34 and 35)</blockquote>That (sentences, statements) which demonstrates the property to be proved (as belonging to the Subject) through a property common to the Udaharana or example is called the Hetu. When one notices a certain property in the subject (pertinent to the conclusion to be proved) and notices the same property also in the example, and then puts forward that property as a proof statement to assert the Sadhya (something to be proved) - this is called the Hetu. As for the example : Sound is non-eternal, we have the statement "because sound has the characteristic of being a 'product' (उत्पत्तिधर्मकत्वम्); it has been known that everything that is a product is not eternal." 
+
+Hetu also comprises of the statement of dissimilarity of the object of comparison with the Subject. As for the example : Sound is non-eternal, because it has the characteristic of being <nowiki>''</nowiki>produced'. That which does not have the characteristic of being produced is always 'eternal', e.g., substances such as the Atman and the like. (Book Page No 64 and 65 of )
+
+### उदाहरणम् ॥ Udaharana : Statement of Instance
+Udaharana is the Statement of Instance (similar or opposite examples or illustrations) and based on Pratyaksha pramana. <blockquote>साध्यसाधर्म्यात्तद्धर्मभावी दृष्टान्त उदाहरणम् ॥३६॥ {उदाहरणलक्षणम्} तद्विपर्ययाद्वा विपरीतम्॥३७॥{उदाहरणलक्षणम्} (Nyay. Sutr. 1.1.36 and 37)</blockquote><blockquote>sādhyasādharmyāttaddharmabhāvī dr̥ṣṭānta udāharaṇam ॥36॥ {udāharaṇalakṣaṇam} tadviparyayādvā viparītam॥37॥{udāharaṇalakṣaṇam} (Nyay. Sutr. 1.1.36 and 37)</blockquote>Udaharana is that illustration (दृष्टान्तः) about a property of a familiar instance which is common or concomitant (साधर्म्याम्) with what has to be proved in Sadhya (साध्यः). And another kind of Statement of Instance is that which consists of the property dissimilar to what is to be proved. <blockquote>साध्येन साधर्म्यं समानधर्मता साध्यसाधर्म्यात्कारणात्तद्धर्मभावी दृष्टान्त इति । तस्य धर्मस्तद्धर्मः । तस्य साध्यस्य । साध्यं च द्विविधं धर्मिविशिष्टो वा धर्मः शब्दस्यानित्यत्वं धर्मविशिष्टो वा धर्मी अनित्यः शब्द इति। इहेत्तरं तद्ग्रहणेन गृह्यते...। (Vats. Bhas. Nyay. Sutr. 1.1.36 and 37) (PDF Pages 89 and 90 of Reference)</blockquote><blockquote>sādhyēna sādharmyaṁ samānadharmatā sādhyasādharmyātkāraṇāttaddharmabhāvī dr̥ṣṭānta iti । tasya dharmastaddharmaḥ । tasya sādhyasya । sādhyaṁ ca dvividhaṁ dharmiviśiṣṭō vā dharmaḥ śabdasyānityatvaṁ dharmaviśiṣṭō vā dharmī anityaḥ śabda iti। ihēttaraṁ tadgrahaṇēna gr̥hyatē...। (Vats. Bhas. Nyay. Sutr. 1.1.36 and 37)</blockquote>Drsthanta (Udaharana) is defined as a statement of an Instance which has a similar character which is also present in the Sadhya (साध्यः). What is to be proved, Sadhya, is of two kinds 
+# in some cases it is the property of (belonging to) an object, which is explicitly expressed; as when we assert the "non-eternality of sound". (Here emphasis is on property of the object namely Non-etarnality)
+# In other cases it is the object which is expressed through a property, as when we assert that "sound is non eternal". (Here emphasis is on the object namely Sound) (Page No 65 to 68 Reference ).
+It is this latter or the second kind that is referred to by the pronoun "tat". Tatddharmabhavi (त्तद्धर्मभावी) means that which has bhava or presence of the dharma or property of tat or that.  
+
+### उपनयः ॥ Upanaya : Statement of Reaffirmation
+Upanaya is the Statement of Minor premise (a minor summary), a Reaffirmation, made with the support of the Udaharana and is thus based on Upamana pramana.<blockquote>उदाहरणापेक्षः तथा इति उपसंहारः न तथा इति वा साध्यस्य उपनयः ॥३८॥ {उपनयलक्षणम्} (Nyay. Sutr. 1.1.38)</blockquote><blockquote>udāharaṇāpēkṣaḥ tathā iti upasaṁhāraḥ na tathā iti vā sādhyasya upanayaḥ ॥38॥ {upanayalakṣaṇam} (Nyay. Sutr. 1.1.38)</blockquote>Upanaya (reaffirmation) is that which, depending on the Udaharana, reasserts the Sadhya (subject which is to be proved) as being "so" (i.e., as possessing the character which has been found in the Udaharana, to be concomitant with the Sadhya) or as being "not so" (i.e., as not possessing the character which has been found in the Udaharana, is to be opposite and with the negation of Udaharana). (Page No 69 of Reference ) <blockquote>साध्यासाधर्म्ययुक्ते उदाहरणे स्थाल्यादि द्रव्यमुत्यतिधर्मकत्वमुपसंह्रियते साध्यवैदर्म्ययुक्ते पुनरुदाहरणे आत्मादि द्रव्यमनुत्पत्तिधर्मकं नित्यं दृष्टं न च तथा शब्द इति अनुत्पत्तिधर्मकत्वस्योपसंहारप्रतिषेधेन उत्पत्तिधर्मकत्वमुपसंहियते । (Vats. Bhas. Nyay. Sutr. 1.1.38) (PDF Page 91 of Reference)</blockquote><blockquote>sādhyāsādharmyayuktē udāharaṇē sthālyādi dravyamutyatidharmakatvamupasaṁhriyatē sādhyavaidarmyayuktē punarudāharaṇē ātmādi dravyamanutpattidharmakaṁ nityaṁ dr̥ṣṭaṁ na ca tathā śabda iti anutpattidharmakatvasyōpasaṁhārapratiṣēdhēna utpattidharmakatvamupasaṁhiyatē । (Vats. Bhas. Nyay. Sutr. 1.1.38)</blockquote>
+# When the Udaharana cited is the homogenous one, which is similar to the subject, - e.g. when the Dish (plate) is cited as the example to show, that it is a product and is non-eternal, we have the reaffirmation stated in the form, 'Sound is so' i.e., 'Sound is a product'; where the characteristic of being a product is affirmed of the subject Sound.
+# When the Udaharana cited is the heterogeneous one, which is opposite to the Subject - e.g. when the Atma is cited as an example of a substance, which not being a product, is eternal, we have the reaffirmation stated in the form, 'Sound is not so' therefore, 'Sound is a product'; where the character of being a product is reasserted of the subject Sound, through the denial of the affirmation of the character of not being produced. Thus there are two kinds of reafffirmation based on the two kinds of Udaharana. (Page No 69 Reference ).
+
+### निगमनम् ॥ Nigamana : Statement of Conclusion
+Nigamana is the Statement of the Final Conclusion. It is the indication of the capability of the aforesaid statements to arrive at a single conclusion pertaining to the same object or purpose.<blockquote>हेत्वपदेशात्प्रतिज्ञायाः पुनर्वचनं निगमनम्॥३९॥{निगमनलक्षणम्} (Nyay. Sutr. 1.1.39)</blockquote><blockquote>hētvapadēśātpratijñāyāḥ punarvacanaṁ nigamanam॥39॥{nigamanalakṣaṇam} (Nyay. Sutr. 1.1.39)</blockquote>Nigamana is the Statement of the Final Conclusion which is the restatement of the Pratijna on the basis of Hetu.  <blockquote>साधर्म्योक्ते वैधर्म्योक्ते वा यथोदाहरणमुपसंह्रियते तस्मादुत्पत्तिधर्मकत्वादनित्यः शब्द इति निगमनम् ।... (Vats. Bhas. Nyay. Sutr. 1.1.39) (PDF Page 92 of Reference)</blockquote><blockquote>sādharmyōktē vaidharmyōktē vā yathōdāharaṇamupasaṁhriyatē tasmādutpattidharmakatvādanityaḥ śabda iti nigamanam ।... (Vats. Bhas. Nyay. Sutr. 1.1.39)</blockquote>The Hetu having been stated either per similarity or per dissimilarity, we have a recapitulation (of the entire reasoning) in accordance with the Hetu; and this recapitulation constitutes the final conclusion; which is in the form "Therefore, having the character of product, Sound is non-eternal." This has been called "Nigamana (Final Conclusion)" because it serves to connect or string together (निगमयन्ते अनेन) the Pratijna (Proposition), Hetu (Reasoning), Udaharana (Instance), and the Upanaya (Reaffirmation); the word nigamyante (निगमयन्ते) being synonymous with the samarthyante (समर्थन्यते) and sambadhyante (संबध्यन्ते).
+
+When the Hetu has been stated per similarity, the Pratijna is in the form of the statement "Sound is non-eternal". Hetu here is stated as "because it has the characteristic of being a product"; the example is in the form "things like the dish or plate, which have the characteristic of being a product, are all non-eternal". And the Reaffirmation is stated as "Sound also has the same characteristic of being a product; the Final Conclusion is thus "therefore, having the characteristic of being a product Sound is non-eternal."
+
+When the Hetu has been stated per dissimilarity, the Pratijna is in the same form, "Sound is non-eternal", the Hetu being "because it has the characteristic of being a product"; the example of dissimilarity being "such things as the Atma which do not have the characteristic of being a product, are eternal". The Reaffirmation is thus stated as "Sound does not have the characteristic of *not being a product* i.e., it is dissimilar from Atma which has the characteristic of not being a product, hence not-eternal. The Final conclusion is thus "therefore, not being a non-product, Sound is non-eternal".(Page No 70 of Reference ).
+
+Now we proceed to specific purposes served by each of five Avayavas.
+
+## Prayojana of Avayavas
+Each of the five avayavas have a definite role in establishing the process of reasoning. 
+* Pratijna serves the purpose of mentioning the relation between the characteristic to be proved and the subject
+* Hetu serves the purpose of stating the fact of a certain character, which is either similar or dissimilar to what is stated in the Udaharana, proving what is to be proved
+* Udaharana serves the purpose of indicating the presence of a relation of *'proof and proved* ', of a common character manifested in two different things namely the subject and Udaharana
+* Upanaya serves the purpose of indicating the coexistence (साधर्मम्यम्) or non-existence (वैधर्मम्यम्) (in the Subject) of the character put forward both in the Subject and the Udaharana
+* Nigamana serves the purpose of showing that it is not possible to deny, in regard to the particular characteristic, the relation of *'proof and proved* ' which has been found, in the Udaharana, to subsist between the two things namely Subject and Udaharana
+
+## Pramanas and Avayavas
+In every inferential statement, which consists of the five factors, several distinct pramanas co-mingle and cooperate towards the accomplishment of the statement as in the following cases -
+
+a) In the inference about Shabda, the Pratijna (Sound is non-eternal) comes under Shabda Pramana, verbal cognition and verbal assertion, unless it is heard directly from a Rshi and stands the need of corroboration by Pratyaksha and Anumana pramanas.
+
+b) In the statement of Hetu, we have an Anumana pramana being deduced, from the cognition of similarity given by the instances or examples. This is clearly explained in the Bhashya dealing with the Statement of Instance.
+
+c) The statements of Udaharana represents the Pratyaksha thereby understanding the "unperceived" (unknown or uncertain conclusion) from the "perceived" (from the perception of the example or illustration).
+
+d) Reaffirmation is in the form of Upamana or Analogy as it is expressed in the form of (comparison) statements like "as that so this" or "this is not as that is"; when there is denial of the analogous character; in which case the reaffirmation is in the form of denial of the contrary character.
+
+e) The final conclusion serves to show how all the factors combined are capable of bringing about the cognition of a single subject (Sadhya, what is to be proved). 
+
+## सङ्ग्रह ॥ Summary
+It is this five-fold articulation that constitutes the highest form of reasoning because only when thus stated that Reasoning succeeds in convincing the nonbeliever.
+
+As a matter of fact, **Pratijna** is what is **yet to be established or proved** and **Nigamana** is what is **firmly established or proved**; yet both refer to the same thing. That which appears in the Nigamana *as proved* has appeared before in the Pratijna as *to be proved;*  so there is no incongruity on speaking of the Nigamana (conclusion) as being the Pratijna (proposition).
+
+There is a mutual cooperation also among the five factors
+* if there were no Pratijna, there would be no basis on which the statement of Hetu and other factors can proceed.
+* If there were no Hetu or reasoning given, the instrumental efficiency towards bringing about cognition cannot be shown, so also the connection between the example and subject would not be revealed. It is the primary factor based on which the Final conclusion can be made restating the Pratijna.
+* If there were no statements of instances, similarity or the dissimilarity to put forward as a means to prove a Pratijna cannot be shown. It is the strength on which the final recapitulation can take place.
+* If there were no reaffirmative statements, the characteristic put forward as proving the subject, not having its presence in the subject reasserted, could not accomplish its purpose.
+* In the absence of the Final conclusion, there would be nothing to indicate the mutual relationship among all the other four factors, or the explanation of the fact that their combination accomplishes a common purpose.
+When the Hetu and Udaharana have been duly put forward in the correct form as described above, it leaves no opportunity for the opponent to present any Futile Rejoinders against them.
+
+## References
+
+Category:Darshanas

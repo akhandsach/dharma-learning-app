@@ -1,0 +1,9 @@
+Ancient Shivalaya, near Mumbai, this temple is adorned by a shivalinga in the shape of an anthill. 
+
+**Location:** On Malabar hill, Mumbai; near Banganga tank.
+
+**Kṣhetra Purāṇam:** Once, during araṇyavāsam, Lord Rāma visited this place and wanted to worship His iṣhṭa-daivam, Lord Śiva. He then made a saikata-lingam (made of sand) and performed pūjā of it. It is this ancient lingam of which one can now have darsan of in this holy place. Also, Lord Rāma, shot an arrow into the ground bringing out the ganga and performed Śiva abhiṣhekam with this ganga. This water currently exists as the Bāṇganga tank.
+thumb
+
+**About the Temple:** A temple structure and the near-by Banganga tank were constructed in 1127 AD by Lakshman Prabhu, a Gaud Saraswat Brahmin minister in the court of the Silhara Kings. This temple was destroyed by the Portuguese during their reign over Mumbai in the 16th century. It was rebuilt due to the generosity of Mumbai businessman and philanthropist, Rama Kamath, a Gaud Saraswat Brahmin in 1715. The Śiva lingam here is of an extraordinary shape: it resembles an ant-hill and hence the name Wālkeśwar. There are many temples near-by, located around the Banganga tank: Rāmeśwar, Paraśurama, Hanumān, Bālāji, Muralidhar Krishna, Bhadra Kāli and few other Śiva temples. The Venkateshwar Balaji Mandir is a Peshwa era temple with a wooden canopy, dating from 1789. A Kāśī matt and Śrī Kaivalya matt are also situated on the banks of banganga. Thanks to the efforts of the Gaud Saraswat Brahmins, because of who we are able to worship this ancient Śiva lingam that was once worshiped by Lord Rāma.
+Category:Temples

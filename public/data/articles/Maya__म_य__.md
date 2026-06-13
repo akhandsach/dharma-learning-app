@@ -1,0 +1,57 @@
+The Divine Power or Shakti (शक्तिः), the will of Ishvara, His power in manifesting the Jagat (the worlds or universe), as says Smrti, is called Maya (माया). Maya is inseparable from Ishvara. It is the knowledge of the concept of Maya that provides an answer to the question - "How can Brahman, which is unchanging, become the material cause of the Universe?"
+
+## Non-causal Nature of Brahman
+The question of how Brahman is related to the visible world and whether he is the intelligent or efficient cause (nimitta karana), material cause (upadana karana) or acts as the substratum (Adhishtana) leads one to explore the Upanishads.
+
+Many references in Upanishads advocate that Brahman is not the cause of the perceived universe. For example 
+* Brhdaranyaka Upanishad (2.5.19) states Brahman is without prior or posterior...
+* Kathopanishad (1.2.14) states that It is different from cause and effect.
+* Kathopanishad (1.2.18) states that It did not originate from anything nor did anything originate from it. It is neither born nor does it die.
+So, Brahman being the efficient cause (निमित्तकारणम् । nimitta kaaranam) of the Universe appears illogical with the above statements. But alongside we have other Upanishads which describe instances where Brahman is said to have visualized, thought and  
+* deliberated on creation as discussed in Upanishads such as Chandogya (6.2.3), Taittriya (2.6.1), Aitareya (1.1.3, 1.1.4 etc)
+* created and perceived the universe as in Chandogya (6.2.3), Aitereya (1.1.2)
+Thus we see that Brahman appears to be the material cause of the world.  
+
+Brahman, as per any Vedanta siddhanta, does not by itself undergo any modification. In its nature, it is all-pervading Existence (सत् । Sat), which serves as the Adhisthanam (अधिष्ठानम् । substratum) for the name and form to be superimposed. The actual material cause (परिणाम-उपादानकारणम् । parinama upadana karana) is Maya, which superimposes, on the substratum (the unconditioned Brahman), the differentiated name and form on account of which we perceive a world of objects. The entity that visualizes and designs the names and forms to be superimposed, and drives Maya to superimpose them is Ishvara (the conditioned Brahman). The Supreme Ishvara, by His Maya, creates preserves and destroys the innumerable world-systems that form the ocean of Samsara.
+## Srshti - Maya
+Origin, continuance and dissolution of the world would result from ‘Isvara’ who is by nature eternal, pure, consciousness and free, as also omniscient and omnipotent. His rulership extends to the beings of the samsara which are bound by the limiting adjuncts conjured by Avidya.  
+
+Mundaka Upanishad refers to the analogy of spider producing the web to show the relationship between Brahman (as both the intelligent and material cause) and Jagat in the following lines<blockquote>यथोर्णनाभिः सृजते गृह्णते च यथा पृथिव्यामोषधयः संभवन्ति । यथा सतः पुरुषात् केशलोमानि तथाऽक्षरात् संभवतीह विश्वम् ॥ ७ ॥ (Mund. Upan. 1.1.7)</blockquote><blockquote>yathorṇanābhiḥ sr̥jate gr̥hṇate ca yathā pr̥thivyāmoṣadhayaḥ saṁbhavanti । yathā sataḥ puruṣāt keśalomāni tathā'kṣarāt saṁbhavatīha viśvam ॥ 7 ॥ (Mund. Upan. 1.1.7)</blockquote>As a spider spreads out and withdraws (its thread), as on the earth grows the herbs, and as from the living man issues out hair on the head and body, so out of the Aksharam (Immutable) does the universe emerge.
+
+Further, the Upanishad explains that the name and form arises from the Brahman in the following way<blockquote>यः सर्वज्ञः सर्वविद्यस्य ज्ञानमयं तापः । तस्मादेतद्ब्रह्म नाम रूपमन्नं च जायाते ॥ ९ ॥ (Mund. Upan. 1.1.9)</blockquote><blockquote>yaḥ sarvajñaḥ sarvavidyasya jñānamayaṁ tāpaḥ । tasmādetadbrahma nāma rūpamannaṁ ca jāyāte ॥ 9 ॥ (Mund. Upan. 1.1.9)</blockquote>From Him, who is omniscient and all-knowing, whose austerity is constituted by knowledge, evolves this (derived entity) Brahman (called as Hiranyagarbha), Name, Form and Food.
+
+## Maya is Prakrti
+Mulaprakrti or Prakrti (Shakti) and Maya are often interchanged and thus used synonymously. The Upanishads, Bhagavadgita and Samkhya darshana primarily describe the visible universe, and the human experience, as an interplay of Purusha (the eternal, unchanging principle, consciousness) and Prakrti. 
+
+### Shvetashvatara Upanishad
+Ishvara by his Maya, creates, preserves and destroys the innumerable world systems that form the ocean of Samsara. As explained in the Shvetashvatara Upanishad<blockquote>छन्दांसि यज्ञाः क्रतवो व्रतानि भूतं भव्यं यच्च वेदा वदन्ति । अस्मान्मायी सृजते विश्वमेतत्तस्मिंश्चान्यो मायया सन्निरुद्धः ॥ ९ ॥</blockquote><blockquote>chandāṁsi yajñāḥ kratavo vratāni bhūtaṁ bhavyaṁ yacca vedā vadanti । asmānmāyī sr̥jate viśvametattasmiṁścānyo māyayā sanniruddhaḥ ॥ 9 ॥</blockquote><blockquote>मायां तु प्रकृतिं विद्यान्मायिनं च महेश्वरम् । तस्यवयवभूतैस्तु व्याप्तं सर्वमिदं जगत् ॥ १० ॥ (Shvet. Upan. 4.9-10)</blockquote><blockquote>māyāṁ tu prakr̥tiṁ vidyānmāyinaṁ ca maheśvaram । tasyavayavabhūtaistu vyāptaṁ sarvamidaṁ jagat ॥ 10 ॥ (Shvet. Upan. 4.9-10)</blockquote>The Vedas, yajnas, kratus, vratas, the past and future, and all those which the vedas speak of, are from It (अस्मात्), from Brahman, the Immutable under consideration. The Ruler of Maya is Mayi (मायी) projects this world. One should know that Nature (प्रकृति) is surely Maya (माया) and the Supreme Being (महेश्वरम्) is Mayi (मायी) the ruler of Maya. This whole universe is verily pervaded by what are His limbs.
+
+Prakrti or Nature, presented earlier as the material cause of the universe, is surely Maya. Here it is to be noted that Isvara and Prakrti are distinct from the non-personal form of Brahman (nirguna form). 
+
+### Bhagavadgita
+Shrimad Bhagavadgita further states that Prkrti is vested with the power of creation (material cause) <blockquote>मयाऽध्यक्षेण प्रकृतिः सूयते सचराचरम्। mayā'dhyakṣeṇa prakr̥tiḥ sūyate sacarācaram। (Bhag. Gita. 9.10)</blockquote>With me as the supervisor, the Prkriti produces (the world), with all the moving and non-moving things.
+
+Vyasa further shows that the gunas originate from Nature, as in <blockquote>सत्त्वं रजस्तम इति गुणाः प्रकृतिसंभवाः। निबध्नन्ति महाबाहो देहे देहिनमव्ययम्।।14.5।। (Bhag. Gita. 14.5)</blockquote><blockquote>sattvaṁ rajastama iti guṇāḥ prakr̥tisaṁbhavāḥ। nibadhnanti mahābāho dehe dehinamavyayam।।14.5।।</blockquote>The gunas, sattva, rajas, and tamas, are products of Nature. 
+
+Ramanujacharya in his commentary to the above sloka explains the nature of the interaction of the gunas after arising from Prakrti as follows - they (the gunas) are not apparent in the unevolved state of Prakrti but become apparent in its transformed state as Mahat etc. They bind the Self, which is conjoined with bodies such as those of devatas, men, creatures etc.. The Upadhis or bodies are composed of the modifications of Prakrti beginning with Mahat and ending with the elements. The Gunas bind Self when It is residing in the body. The meaning is that they bind It by virtue of the limiting conditions of Its presence in the body.
+
+### Samkhya Darshana
+Many scholars equate the concept of Prakrti in Samkhya and Maya, both of which are said to be the material cause of the universe. Gunas are the constitutive elements of Prakrti or Pradhana. According to Samkhya siddhanta, Jagat is real and consists of 24 tattvas, namely Prakrti, Mahat, Ahamkara, Manas, the five Karmendriyas, five Jnanendriyas, the five tanmatras, and five panchabhutas. Purusha is neither like Prakrti or the evolutes like Buddhi or the Indriyas.<blockquote>मूलप्रकृतिरविकृतिर्महदाद्या: प्रकृतिविकृतय: सप्त । षोडशकस्तु विकारो न प्रकृतिर्न विकृति: पुरुष: ॥ ३ ॥</blockquote><blockquote>mūlaprakr̥tiravikr̥tirmahadādyā: prakr̥tivikr̥taya: sapta । ṣoḍaśakastu vikāro na prakr̥tirna vikr̥ti: puruṣa: ॥ 3 ॥</blockquote>Unlike the Prkrti of Vedantins, Samkhya holds that the world is real and is produced from an existent cause (Satkaryavada). Samkhya defines Prkrti (or Pradhana) as the state of equilibrium of the Sattva, Rajas and Tamas gunas. This state of equilibrium when disturbed by Spandana, alters the equilibrium of the Gunas leading to Srsthti. However, all the objective world is non-intelligent because its material cause, Prkrti is non-intelligent. 
+
+We see from the above discussions that subtle variations are viewed in the relationship of the Gunas and Prakrti; Bhagavadgita advocates that gunas are the products of Nature associated (and binding) to Purusha, whereas Samkhya siddhanta holds that Gunas are the constituents of Nature. 
+
+### Shivapurana
+Shivapurana states that from the Nirguna Brahman arises, Shiva, and that Prakrti and Purusha have evolved from Him.  <blockquote>तस्मात्प्रकृतिरुत्पन्ना पुरुषेण समन्विता ।। ताभ्यान्तपः कृतं तत्र मूलस्थे च जले सुधीः ।। ३ ।। (Shiv. Pura. 4.42.3)</blockquote><blockquote>tasmātprakr̥tirutpannā puruṣeṇa samanvitā ।। tābhyāntapaḥ kr̥taṁ tatra mūlasthe ca jale sudhīḥ ।। 3 ।। (Shiv. Pura. 4.42.3)</blockquote><blockquote>संभाव्य मायया युक्तस्तत्र सुप्तो हरिस्स वै ।। नारायणेति विख्यातः प्रकृतिर्नारायणी मता ।। ५ ।। (Shiv. Pura. 4.42.5)</blockquote><blockquote>saṁbhāvya māyayā yuktastatra supto harissa vai ।। nārāyaṇeti vikhyātaḥ prakr̥tirnārāyaṇī matā ।। 5 ।। (Shiv. Pura. 4.42.5)</blockquote>From Him (Shiva) has originated Prakrti along with Purusha. They performed penance in the water.
+
+## Maya - The Feminine Principle
+Devi Bhagavata describes the matter side of Nature which is regarded as Maya. Shakteya sampradayins describe Maya as - A feminine principle Maya is inseparable from Ishvara (Conditioned Brahman). <blockquote>परात्मनस्तथा शक्तेस्तयोरैक्यं सदैव हि । अभिन्नं तद्वपुर्ज्ञात्वा मुच्यते सर्वदोषतः ॥ ४९ ॥ (Devi. Bhag. 6.15.49)</blockquote><blockquote>parātmanastathā śaktestayoraikyaṁ sadaiva hi । abhinnaṁ tadvapurjñātvā mucyate sarvadoṣataḥ ॥ 49 ॥ (Devi. Bhag. 6.15.49)</blockquote>Just like Paramatma (the Self) is the Parashakti (Supreme Force) and both are always in perfect Oneness (united); their Forms are not different. When such a knowledge arises, then the Jivas can be free from all sins and faults and blemishes. Their unity is like that of the moon and the moonlight or that of the fire and its power to burn, says Nilakantha, commenting on this sloka.<blockquote>तस्य चेच्छास्म्यहं दैत्य सृजामि सकलं जगत् । स मां पश्यति विश्वात्मा तस्याहं प्रकृतिः शिवा ॥ ३६ ॥ (Devi. Bhag. 5.16.36)</blockquote><blockquote>tasya cecchāsmyahaṁ daitya sr̥jāmi sakalaṁ jagat । sa māṁ paśyati viśvātmā tasyāhaṁ prakr̥tiḥ śivā ॥ 36 ॥ (Devi. Bhag. 5.16.36)</blockquote>I am the Iccha (will) of Him (Purusha), O Daitya, I created the whole universe. He, the Universal Self beholds me and I am His auspicious Nature (Prakrti).
+
+In Adhyatma Ramayana She is described as having two forms.<blockquote>राम माया द्विधा भाति विद्याऽविद्येति ते सदा । rāma māyā dvidhā bhāti vidyā'vidyeti te sadā । (Adhy. Rama. 3.3.32)</blockquote>O Rama! Maya manifests in dual forms, these ever are Vidya and Avidya.
+
+Though inseparable from the Paramatma, when turned towards Him, she is called Vidya or Mahavidya, the Supreme Knowledge which leads a Jiva to Him (moksha). When turned away from Him, towards worldly aspects, she is called Avidya or Mahamaya, the Great Illusion (the lack of true knowledge) which permeates in the Mulaprakrti and remains inseparable from it.
+
+## References
+
+Category:Vedanta
+Category:Upanishads
+Category:Darshanas

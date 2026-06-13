@@ -1,0 +1,1 @@
+Based on the talk on Leadership lessons from Shukraniti organised by Rishi Vatika

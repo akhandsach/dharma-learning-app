@@ -1,0 +1,22 @@
+Uddalaka (samskrit: उद्दालकः) was a disciple called Aruni (आरुणिः) of the teacher Ayodhadhaumya (अयोधधौम्यः). 
+
+## परिचयः ॥ Introduction
+According to the Mahabharata (Sabha Parva, Adhyaya 7, Verse 12), Uddalaka was a prominent figure in the sabha (court) of Indra. The Vana Parva (Adhyaya 132) of the Mahabharata enumerates that Uddalaka had a son called Shvetaketu and a daughter called Sujata. He gave his daughter Sujata in marriage to his disciple Kahoda (कहोडः) and rshi Ashtavakra (अष्टावक्रः) was their son.
+## नामाभिधानम् ॥ The Name Uddalaka
+Aruni (आरुणिः), a resident of Panchala, was a student of the well known maharshi, Ayoda Dhaumya (अयोदधौम्यः). One day, the guru sent Aruni to the field and asked him to construct a mound to obstruct the flow of water. Thus instructed by the guru, Aruni immediately went to the field of grains and began efforts to raise a weir. However, his efforts failed to bear fruits. Amidst his multiple attempts towards this end, an idea finally dawned on him. Accordingly, he himself laid down in place of the broken weir and stopped the flow of water. After sometime, the guru asked other disciples about the whereabouts of Aruni. They replied that Aruni had gone to fulfill the instructions of the teacher. Hearing this, the guru, along with his other disciples went to the field in search of Aruni. Having reached the field, the guru called out to Aruni and said. ‘Oh Aruni, where are you my child ? Come here.’ As soon as Aruni heard the words of his guru, he immediately raised from the field and presented himself in front of his guru. He then politely explained to his guru that he himself laid down in the field in order to stop the flow of water. However, now, hearing the call of his teacher, he abandoned the field and came there. He then offered salutations to his guru and asked his advice on which of the two works, from amongst blocking the flow of water and attending to the guru, should be accomplished by him. The pleased guru then blessed Aruni that in recognition of his arising from the weir of the field, Aruni will be known by the name Uddalaka. This is how Aruni gained the name Uddalaka.
+
+The guru also said that owing to Aruni’s unflinching devotion towards his guru’s words, he will gain all auspiciousness. And that, he will be enlightened with the knowledge of all the Vedas and Dharmashastras.<blockquote>यस्माच्च त्वया मद्वचनमनुष्ठितं तस्माच्छ्रेयोऽवाप्स्यसि।  सर्वे च ते वेदाः प्रतिभास्यन्ति सर्वाणि च धर्मशास्त्राणीति ॥३२॥</blockquote><blockquote>*yasmācca tvayā madvacanamanuṣṭhitaṁ tasmācchreyo'vāpsyasi। sarve ca te vedāḥ pratibhāsyanti sarvāṇi ca dharmaśāstrāṇīti ॥32॥*</blockquote>This story occurs in the 3rd Adhyaya (Paushya Parva) of the Adi Parva of the Mahabharata.
+
+## सरस्वत्याः आवाहनम् ॥ Invoking Sarasvati
+Mahabharata, Shalya Parva (Adhyaya 38) mentions that there are seven rivers by the name Sarasvati. They appeared on different occasions at the invocation of great rshis and  came to be known by different names.<blockquote>सप्तनद्यः सरस्वत्या याभिर्व्याप्तमिदं जगत् । आहूता बलवद्भिर्हि तत्र तत्र सरस्वती ।।</blockquote><blockquote>*saptanadyaḥ sarasvatyā yābhirvyāptamidaṁ jagat । āhūtā balavadbhirhi tatra tatra sarasvatī ।।*</blockquote>One such instance involves rshi Uddalaka. 
+
+Long ago in Uttara Kosala region, seers from different places had gathered together for a yajna. There, the great Uddalaka is said to have invoked river Sarasvati who came there all the way from the Himalayas in order to facilitate the completion of the rshi's vow. As rshi Uddalaka contemplated upon river Sarasvati in his mind (Manas | मनस्) and she appeared, the river got the name Manorama.
+
+## धर्मनिष्ठा ॥ Adherence to Righteous Behaviour
+Mahabharata, Shanti Parva (Adhyaya 57) mentions that Uddalaka abandoned his dear son Shvetaketu because of his improper and deceitful behaviour with Brahmanas. Such was his adherence to righteous behaviour.<blockquote>ऋषिणोद्दालकेनापि श्वेतकेतुर्महातपाः। मिथ्या विप्रानुपचरन्सन्त्यक्तो दयितः सुतः ।।</blockquote><blockquote>*r̥ṣiṇoddālakenāpi śvetaketurmahātapāḥ। mithyā viprānupacaransantyakto dayitaḥ sutaḥ ।।*</blockquote>
+
+## References
+
+Category:Itihasa
+Category:Mahabharata
+Category:Rishis

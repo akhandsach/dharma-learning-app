@@ -1,0 +1,10 @@
+thumb
+thumb|Mumbadevi 
+**Location:** In Bhuleshwar area, Mumbai.
+
+**Timings:** Though open all day, since the place is a marketplace and is extremely crowded, it is advisable to visit in early morning or on Sunday. Also you might want to visit the temple during special aarti at ~7:30am, ~7:30pm.
+
+**Kṣhetra Purāṇam:** Once upon a time, a rākṣhasa by name Mumbarāka lived in this area. He was very cruel and used to terrorize the locals. Not able to tolerate, the locals pleaded Lord Brahma to save them from the rākṣhasa. The Lord then created the eight-armed Mumbādevī from His body to slay the daemon. Mumbādevī  then vanquished the rākṣhasa and saved the locality. From then Mumbādevī was worshiped by the locals and is considered as their grāma-devata.
+
+**About the Temple:** The ancient temple was originally located at the present Chattrapati Shivaji Terminus (CST). The Britishers demolished the temple around the 1730s and built a railway station there in the name of Queen Victoria. Because of this, unfortunately, Mumbādevī was moved to an Annapūrna devi temple located at the current Mumbādevī temple location in Bhuleshwar. Currently, the temple has both the murti or vigrahas of Mumbādevī  and Annapūrna devi. The murti or vigraha of Mumbādevī, covered in sindhūr, dressed in a beautiful robe, with the distinctive nose-ring (a mango shaped one called ‘nath’ worn by Maharashtrian women), a silver crown and a golden necklace is the one which draws everybody’s attention. Interestingly, the Goddess does not have a mouth, representing her tolerance and being a form of Bhūdevi. There are murti or vigrahas of other Gods like Ganeśa, Hanumān and Lord Indra in the temple premises. Because Mumbādevī  is the grāma-devata and is the protector of the area, this place is called as Mumbai.
+Category:Temples

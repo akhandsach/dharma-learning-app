@@ -1,0 +1,9 @@
+Bakasura (Samskrit : बकासुरः) was a ferocious rakshasa who lived near the town called Ekchakra Nagara. He was so ferocious that not even the king was capable of hurting, let alone killing him. He did what he wanted. Threatening to lay waste to the entire town, he demanded daily supplies, putting a great strain on the town. But this was not the entire story. He used to eat the man who delivered the supplies too, alive. Everyone was afraid of him and wanted to get rid of him as the town was getting depopulated.
+
+It was the time when the Pandavas were living in exile in the forest. During their wanderings, they arrived and started living at Ek Chakra Nagara. The people were very hospitable and the Pandavas were happy until one day Kunti heard the cries of her host, as they were staying with a Brahmin family. The family was arguing over whose turn it was to sacrifice his life. Everyone wanted to sacrifice themselves. When Kunti asked about the reason, they told him about Bakasura. Apparently, it was their family’s turn to deliver supplies to Bakasura and get eaten by him.
+
+Kunti came up with a plan. She told the Brahmin to send Bhima, her son, instead of his son. Brahmin did not agree at first, but Kunti said that her son is very strong and moreover she had five of them and even if she lost one she would have the consolation of having four others. She sent Bhima to kill Bakasura.
+
+Upon arriving at Bakasura’s cave, Bhima ate all the food that was meant for Bakasura, angering him. Bakasura came at Bhima and a great battle ensued in which Bhima killed the rakshasa. The villagers became happy but the Pandavas had to leave as they were in a secret exile and their identity should not have been discovered.
+Category:Asuras
+Category:Mahabharata

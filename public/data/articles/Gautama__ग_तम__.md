@@ -1,0 +1,49 @@
+Gautama maharshi is one of the Brahma-maanasa-putras and is one of the great Saptarishis. Gautama maharshi is a mantra-drashta and gave us the famous “Gautama Smruti” in which he showed us many Dharma-sutras. Proving the Shodasha (16) Padaarthas like Pratignya, Hetu, Udaaharana, he wrote a Nyaayashaastram too. He gave us the Jyotishshaastra Grantham by the name “Gautama Samhita”. Sitadevi’s gotram is Gautama gotram only!
+
+## Ahalya
+Once Brahmadeva did srushti of Ahalya (Na halyati iti Ahalya. She lacked nothing). She was a divya Soundarya Murty. Brahmadeva wondered who derserved to be the Bharta of this apuurva Gunavati. He decided that a person with Akhanda Teevra Brahmacharya Nishtha and Nigraham can only be her Bharta and saw that Gautama maharshi was the one. He decided to test the Indriya Nigraham of Gautama maharshi. He came to Gautama maharshi’s aashramam and said “she is Ahalya. I will leave her in your aashramam. I will come back after some time”. Many years passed and since Gautama maharshi was a Samyami and his manas was always with Brahma (hence a Brahmachaari), he never even had faint skhalanam seeing Ahalya. Gautama maharshi, the parama Shiva Bhakta, easily passed the test of Brahmadeva. Brahmadeva then did Kalyaanam of Gautama maharshi and Ahalya. Their’s was an aadarsha daapatyam. They lived in Brahmagiri, which is in Dakshina-Bhaaratam.
+
+Unlike modern technology, which tries to exploit Nature, our Bhaarateeya Vignyaanam explians ways how to use Nature without disturbing the Nature’s eco-system. Combining Bhautika Vignyaanam and Aadhyaatmika Vignyaanam is the speciality of Bhaarateeya maharshis. Gautama maharshi was a master of Bhuu, Jala, Vyavasaaya Shastras. Gautama maharshi, once for Kshaama-nivaaranam did Tapas for Varunadeva and made a reservoir filled with Akshayajalam. Shiva Puraanam tells that with this Jalam, many lands become fertile: (here goes the story)
+
+Once a Kshaamam came and life of people became difficult. Except Yogis everyone was running for their life. Gautama maharishi, who had karuna-svabhaavam, was not able to see the difficulties of the people. He decided to do Tapas for Varunadeva to ask him from rain. Varunadeva appeared and said “this is Kaala-niyamam. I cannot go against it. Kaala-karta, Parameshvara, only controls Pancha-bhuutas and Grahas. Doing anusandhaanam of Punya-Paapas of people, using Us, Parama Shiva controls Nature (Aadi Shakti). According to this I must not rain now. Ask Me anything else”. Gautama maharshi, who had loka-shreyas in mind, asked Varunadeva “if You are really satisfied with my Tapas, give me Akshajalam. Other than that I dont need anything”. Varunadeva replied “Gautama! I must give phalitam to your Tapas. I am bound to My Mantram. You dig a reservoir and I will put Akshyajalam in it. Dayaalu like you will do only Praja-kshemam. Jayostu”. Thus Gautama maharshi saved many people. **Aadhaaram to this Prapancham are four: “a person who has Bhuutadaya, a person who has no garvam, a person who has upakaara-buddhi, a person who has Indriya Nigraham”.**
+
+## Godavari
+The seva that Gautama maharshi did to Dakshina Bhaaratam and in particular to Andhra Pradesh is also memorable. Using his Vyavasaaya Shaastram and Godaavari he turned this land fertile. He also changed the course of Krishnaa-nadii-jalam, using his Tapas-shakti, and made still many more lands fertile.
+
+Once the munis and muni-patnis decided that somehow they must drive away Gautama-Ahalya from their place. They thought of doing apakaaram to the great Upakaari who saved them from Praanaapaaya-kshaamam. They used their Mantra-shakti and did puuja of Ganapati. Ganapati gave His divya-darshanam and asked the munis for a varam. They asked Ganapati to somehow make Gautama-Ahalya go away.
+
+Devatas are aadhinas to Their Mantras. Many things which cannot be done otherwise can be done through Mantras. What the munis did was kaamyopaasana (they used their Mantras for satisfying their wants). Since Bhakti had no sthaanam in it, the munis were entirely responsible for their varam. For such upaasana their will be no Aadhyaatmika gains. The Tapas of Bhasmaasura and others were of similar nature (Svaartham is the only reason).
+
+Vighneshvara was surprised by the Krutaghnata of the munis. He told munis “you thought of doing apakaaram to that person due to whom you are existing. Uttamas do Upakaaram to apakaaris. What should I say about you people who do apakaaram to a Upakaari? This will never cause Kshemam to you (so dont ask for it)”. Munis didnt like the hita-vaakyas of Mahaganapati. They still insisted on it. Ganapati said “ok. Praarabdham can never be changed. But you can never ever escape the phalitam of this Krutaghnata. Even though Gautama-Ahalya leave this place, because of them this Prapancham will only gain” and gave them the varam.
+
+Ganapati did Shrushti of a maaya-dhenu. It started spoiling the crops (which Gautama-Ahalya were growing for Annadaanam). Knowing that a Gomaata must never even be driven away harshly, he took darbhas and put on the Gomaata. To his great surprise the maaya-dhenu died there only. Seeing this the muni-patnis and the munis did Haahaakaaras. They said “we thought that Gautama maharshi is an Uttama, but he did Go-hatya!”.
+
+Gautama maharshi became a Vihvala. He called Ahalya and said “what is this Vidhi-vaipariityam? Did Paramashiva get angry on me? What must be done now? With Darbhas a Gomaata getting killed is unbelievable — and Go-hatya-mahaapaatakam!”. The munis and muni-patnis continued “we must never see your face. Devatas wont come to this aashramam to recieve Havis if such patitas stay here. You must immediately go away from here”. They started throwing stones on Gautama-Ahalya.
+
+With Teevra-vedana, that he did Go-hatya-mahaapaatakam, Gautama-Ahlaya left the place and returned after going for some distance (1 krosha) to ask the munis for Praayashchittam.
+
+This is Saampradaayam. One must immediately go to elders and ask for a way of Praayashchittam if one knows he committed a paapam. Munis replied “Gautama! You can either do (and try saving yourself from Go-hatya-paatakam):
+
+1. 3 times Bhu-pradakshinam and do a maasa-vratam here.
+
+2. Do 101 times Giri-pradakshina of this Brahma-giri. After that do 1 crore Linga-aaraadhana. Then Ganga-snaanam.”
+
+Gautama maharshi did Brhama-giri Pradakshina and then Paarthiva-Linga-aaraadhana. Paarvatii-Parameshvara became prasanna seeing the puuja of Gautama-Ahalya and gave them Their Divya-darshanam, along with Pramadha-gana. Gautama maharshi did stotram of Shiva and then asked Him to save himself from Go-hatya-mahaapaatakam. Maheshvara said
+
+“Gautama! My boy! You are a Krutaartha. You are a Dhanya. There is no paapam for you. You are an aajamna-shuddha. You were cheated by the kutantram of these Braahmanas who were bitten by asuuya. If anyone even does your naamasmaranam or has your Darshanam will loose all his paapams.
+
+There is no praayashchittam for these krutaghnas (see this too). From today they will be Bhrashtas. They will be away from Me, leave Veda-Dharmas and their entire santaanam will become patitas. You please ask Me a varam”.
+
+Gautama maharshi with great Vinayam and aanandam replied “Saamba-Mahaadeva! I think these Braahmanas did Upakaaram to me. Because of them only today I had the adrushtam of Your Darshanam”. Aadi-deva became happy seeing the Kshamaa-gunam of Gautama maharshi. Gautama maharshi continued “Parameshvara! If You are really impressed with me, please give Ganga for Loka-kalyaanam”. Ganga-devi appeared as soon as Parama Shiva did Sankalpam. Seeing Ganaga-maata Gautama maharshi said
+
+“Ammaa! You are the one who makes the Trijagas pavitras. Once you blessed Bhagiiratha and saved the Sagara-kumaaras. Entire Uttara-Bhaaratam became sasya-shyaamalam because of You. Please bless the Dakshina-Bhaaratam too.”
+
+Taking Shiva-aagnya Gangadevi took Jala-ruupam and said like this to Parama Shiva “I will go make Gautama and his parivaaram puniitam and return soon to Your Lotus feet”. Shankara said “Gangaa! You stay till the end of Kaliyugam in the 28th Mahaayugam (present Mahaayugam) of Vyvasvata-manvantaram (see this too). Then You return to Your nija-dhaamam”. Gangadevi agreed and requested Parama Shiva “Svaami! Please stay on My nadii-tiiram and bless Us”.
+
+Shankara then became a Jyotirlingam at Tryambakeshvara. Ganga then became paravasha and started flowing from a tree (Medi chettu) on Brahma-giri. This pavitra sthaanam became Gangaa-dvaaram and Ganga got the name Gautamii because Gautama maharshi brought Her. It also got the name Godaavarii because it flowed on the place where a maayaa-gomaata fell. Many great rushis like Vasishtha and Bharadvaaja, with thier Tapobalam, did vistaaram of Godaavarii. There are many Shiva-Keshava kshetras on Godaavarii-nadii-tiiram.
+
+## Niti
+Atithi-seva and Praja-sankshemam were the important Dharmas which Gautama maharshi showed us. One Sajjana/Dushta is enough to save/destroy a whole Vamsham. Many maharshi’s in Gautama maharshi’s Vamsham are Mantra-drashtas. Gautama maharshi and Ahalya’s putra was Shataananda, the Purohita of Janaka maharaja.
+
+Gautama maharshi after making one place fertile used to shift to the next place. Like this many maharshis bless the place with their Tapas and move on. The aashramams used by such Divya-rushis later become Siddha-aashramams. Aditi and Kashyapa maharshi did Tapas for Mahaavishnu in Gautama maharshi’s aashramam and got Mahaavishnu as their child. Mahaavishnu was born to them as Vaamana, Shri Raama and Shri Krishna. (Kaushalya, Dasharatha; and Devaki-Vasudeva are Aditi, Kashyapa only)
+Category:Rishis

@@ -1,0 +1,14 @@
+Chitrakarma (Samskrit: चित्रकर्म) refers to the art of painting, one of the Chatusshasti Kalas. Vishnu Purana (2.43.39) declares that among all arts and skills, painting is the foremost, just as Sumeru is the best among mountains. Many references suggest that ancients knew the art of selecting colors, preparing pigments, making appropriate mixtures of suitable materials for obtaining required shades, preparing lepa or coatings, preparing colours from metals such as gold, silver, copper and chemical methods of filtration and decantation among others.
+
+Ancient Bharat was famous for numerous dyes from vegetable and mineral sources, most noted among them was the red dye from madder (a vine) and the blue dye from the Indigo plant.
+
+## Introduction
+Varahamihira in his Brhat Samhita has referred to the art of painting as chitrakarma and painters were known as chitrakara (चित्रकारः), citrajna (चित्रज्ञः), alekhajn (आलेखज्ञः) (Brh. S. LVII.14; V.74; IX.30; X.IO; XVLI2)
+
+Cave paintings stand testimony to the fact that the art of painting using simple pigment, gairika, (for black color burnt wood was used) had evolved even during the earliest times. During Indus valley civilization, colors such as white, red, black, yellow, green were used. In Ajanta caves, extracts of plants and minerals were made use of in preparing pigments.
+
+At Ajanta, and other caves, the colours most freely used were white, red and brown in various tints, a dull green and blue. For white colour, sulphate of lime was used. Red and brown tints were obtained from compound of iron. Blue colour was obtained by grinding calcined lapislazuli - a costly semiprecious mineral which is usually imported. For yellow, the ancient painters used orpiment, a natural arsenic sulphide. In fresco paintings the pigments should be capable of resisting the decomposing action of lime and hence extra attention had to be bestowed upon selection of proper pigments. The fresco paintings testify to the knowledge and skill of the painters in preparing permanent colours out of vegetable and mineral sources. On the domestic front, homes, doorsteps of houses, entrances were decorated, with paste of haridra (turmeric). The art of decorating home fronts with colored powders called Rangoli, which continues till date, saw the use of red ochre, chalk powder, charcoal, green powder of dried leaves of plants, haridra, neeli etc. Varahamihira has referred to the art of painting as Chitrakarma (चित्रकर्म) and painters were known as citrakara, citrajna, alekhajna, etc (Brh. S. LVII.14; V.74; IX.30; X.IO; XVLI2)
+Category:Shastras
+
+Category:Kala
+Category:64 Kalas

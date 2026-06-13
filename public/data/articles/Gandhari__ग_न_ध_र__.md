@@ -1,0 +1,43 @@
+*Gandhari* is known as an ideal chaste lady in the history of the world. She was the daughter of Maharaja Subala, the King of Gandhara(now Kandahar in Kabul) and the sister of Shakuni. She was the most attractive girl of her time, endowed with beautiful womanly qualities. She worshiped Lord Siva when as a maiden and satisfied him. She was blessed to bring forth one hundred sons. She was betrothed to Dhritarashtra, a Kaurava ruler, who was blind since birth. She was the mother of one hundred sons, of whom Duryodhana was the eldest. She also had a daughter, Dushala.
+
+## Pregnancy and birth of her children
+Due to blindness, Dhritarashtra could not rule the kingdom. So, his younger brother Pandu was crowned as the king. The first male child, either from Dhritarashtra or Pandu was supposed to be the heir of the throne.The Kauravas were the world leaders at that time. Kunti, the wife of Pandu gave birth to a male child before Gandhari. Despite her good qualities, which endeared her to every member of Kaurava Court, Gandhari became envious of Kunti. She had been already suffering and was incapacitated with the burden of her large and prolonged pregnancy. The news of the birth of Kunti's son aggravated her suffering. She became angry and gave a strong blow to her own abdomen. As a result, she gave birth only to a lump of flesh. But by the instruction of Vyasadeva, the lump was divided into one hundred parts, and each part gradually developed to become a male child. Thus her ambition to become the mother of one hundred sons was fulfilled.
+Since the one hundred embryos developed outside the womb, the great literature, Mahabharata deserves priority for giving the earliest known report of test-tube babies.
+
+## A powerful ascetic
+Although Gandhari lived the life of a faithful wife and a kind mother, she was a powerful ascetic. She wanted to follow her blind husband cent percent, so she voluntarily blindfolded her eyes and followed her husband even in his perpetual blindness. She felt that her husband should not feel any trace of inferiority to her. Therefore in her actions she was a great ascetic. She lost all her sons and grandsons in the great war of Kurukshetra. She suffered this great shock and disaster which was too much for anyone, just like an ascetic.
+
+## Krishna and Gandhari
+Gandhari always had thought of Krishna as a very powerful person with a vast army at His command, containing many of the most powerful warriors on earth. He was also said to be an incarnation of God. Surely nothing was beyond His capabilities. He could have easily prevented the fatricidal war by force, if He had so desired. This made her feel that ultimately the death of her sons, was Krishna's fault. The great sages (rishis) had even said that the destruction of the warriors had been His divine arrangement. So, she accused Krishna of deliberately allowing the slaughter of Pandava and Kaurava forces. She cursed Him that His family members will also kill themselves in a fratricidal fight, just as He had allowed the Pandava and Kaurava forces to slaughter each other.
+
+## Sati
+Dhritarashtra burned himself in the fire of mystic yoga along with his cottage of leaves in the forest. Seeing this Gandhari became extremely distressed and lost hope. She had left home with her husband after losing her one hundred sons, and in the forest she saw that her most beloved husband was also burning. A chaste wife like Gandhari would feel the separation of her husband to be more burning than actual fire. Therefore she entered the fire of her husband and followed her husband to death. This entering of a chaste lady into the fire of her dead husband is called the sati rite, and the action is considered to be most perfect for a woman. In a later age, this sati rite became an obnoxious criminal affair because the ceremony was forced upon even an unwilling woman. So for good it was abandoned by the state law.
+
+## Instructive life lessons
+Mahabharata is world's history. It portrays the life experiences of its various characters. It does have a divine arrangement in its making, at the same time there is a real time dynamics due to the choices made by its characters. It gives an insight to the humanly experiences which the characters bring forth, by the way they lead their life and make choices.
+ 
+### Expressing humanness
+It is extremely important to express one's humanness i.e. being oneself with a small group of close people. Acting idealistically neglecting one's vulnerable human side, may make one feel suffocated to practice dharma, especially when life is full of complexities. One may find it too taxing to handle the heat of negativity.
+
+Gandhari acted very ideally, with full responsibility, character, never exhibit or express her human side to the outside world. But when she expressed it was the most negative. She gave a blow to her embryo out of envy towards Kunti and cursed Krishna.
+
+As per Vyasadev, as long as one has a material body, nobody in this world can be said to be fully evolved. All have limitations along with potential. Accepting the fact that there are limitations helps one to lead a realistic life. Then there are no unacceptable behavioral surprises.
+
+### Marriage is about compatibility
+Marriage is best and leads to happiness when the couple share compatible attributes. Marriage due to compassion or due to respect for others is not of the best kind, if without compatibility. Certainly, it cannot guarantee a stable living. The law of nature is fire burns. The laws never change their working. Similarly there are laws that govern compatibility. One has to learn to respect the law and also oneself. An acceptance of marriage proposal to satisfy some superior or due to confusion may lead one to bear the consequences later. For Gandhari, the marriage was a result of political alliance. As a cultured and chaste lady she embraced all consequences, that is to her glory. But the reality is that she had to face situations, which were not so good.
+
+### Over-protection does not protect
+Motherly nature is a woman's great strength. But sometimes her strength can be manipulated by her loved ones. So there is disadvantage to one's good side also. People may take her for granted and neglect her. This will surely result in feeling of isolation and that everyone used me. Being idealistic and not realistic has its dark sides. What to speak of appreciating, people tend to exploit the love of their loved one's without remorse. 
+Although Gandhari was not in favor of Kauravas' wrong-doings, yet as a mother her over protection towards her sons had lead her to become narrow minded at times. She did not want her son Duryodhana to loose. That is why she also tried to make him invincible by her empowered glance. Her determination made her stubborn. She even cursed Krishna.
+
+### Speaking it rightly and timely
+Gandhari was a very good woman but made few mistakes in her life. She accused Krishna of not preventing the war and cursed him. Also, out of envy towards Kunti, she struck her own womb. Karma is not connected just with how big the act is. It is connected with the timing of the act also. That is how the consequences are determined. In this case, the consequence was that, her act consumed the entire dynasty. 
+
+When she heard that Kunti already gave birth, she was surcharged with unlimited envy and struck her belly. It was just not striking the belly but in the process she made envy the samskara of Duryodhana. It is very difficult to change the samskaras that have been brought about during pregnancy. Small act at a crucial junction can cause a lifetime impact.
+
+When Gandhari heard that all her hundred sons were slaughtered, she was very angry and ready to curse Pandavas. Vyasadev realized this and went to her before the Pandavas arrived. He told her that your sons lost life because of their own misdeeds and you have always known that. Thus, speaking the right thing at the right place is very important.
+
+### Balancing suffering and happiness
+Too much of either suffering or happiness becomes a uncarriable burden to anyone, no matter how powerful one is. It causes one to break down after a certain period of time. Gandhari could have sent Shakuni away but did not even though she was seeing all the bad effects. In good things, one should not worry about the result and keep trying to do good things. Even if one fails the intentions will be taken seriously. Gandhari kept ignoring and the consequences were building and the reaction came in the form of a battle.
+
+Category:Mahabharata

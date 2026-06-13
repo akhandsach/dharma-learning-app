@@ -1,0 +1,9 @@
+Category:Temples
+thumb
+**Location:** Mahalakshmi area, Mumbai.
+
+**Timings:** 6am-10pm.
+
+**Kṣhetra Purāṇam**: The story of this temple is connected to the Hornby Vellard project, where the goal was to block the Worli creek and prevent the low-lying areas of Mumbai from being flooded at high tide. However inspite of multiple attempts, many portions of the sea wall collapsed. Then one night, Goddess *Mahālakṣhmī*  appeared in the dream of the chief engineer, *Śri Rāmjī Śivjī*, and instructed him to find three murti or vigrahas of *Mahālakṣhmī*, *Mahākālī*, *Mahāsarasvatī* lying in the seabed and build a temple for them. She gave a boon that the sea-walls will then not collapse. *Śri Rāmjī Śivjī* did as instructed by the Goddess and built the present temple, in around the year 1785. One can now have *darśan* of the three *swayambhū* murti or vigrahas of the Goddesses. Needless to say, the sea-wall never collapsed subsequently.
+
+** About the Temple:** The murti or vigrahas of the Goddesses are covered with beautiful golden masks. However, one can have *darśan* of the *swayambhū* murti or vigrahas either in the morning during *abhiṣhekam* at 6am or at around 9:30pm in the night. The *swayambhū* murti or vigrahas are covered with *sindhūr*, as is common in Maharashtra. One has to ascend around 25 steps to reach the temple. The temple is located on the banks of the Arabian sea. One can even reach the sea by descending around 50 steps from the back of the temple. This place is very beautiful especially during sunrise and sunset. There small temples of *Gaṇeśa* and *Hanumān* near this sea-side area of the temple.

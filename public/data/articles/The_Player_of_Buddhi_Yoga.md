@@ -1,0 +1,29 @@
+Shiva represents consciousness, in a more universal sense rather than being only associated with human awareness.  Everything is related to another, and the awareness of these relationships reveals the presence of consciousness within everything. Thus “consciousness” does not have any form or any “guna”.  It is nirguna!
+
+Pārvati represents prakriti, the phenomenal world.  The world that we experience with our five senses.  The world which has the characteristics of “sattva” (light, existence, illuminating), “rajas” (energy, activity, passion) and “tamas” (darkness, inertia, veiling or covering). Prakriti is saguna! This concept is well explained in the Samkhya Darshana.
+
+At the beginning of time Shiva and Pārvati are one; there is no distinction between consciousness and energy.  Energy is in it’s calmest form.  This form is worshiped as the “ardhanārishwar” (half-man, half-woman), especially at the sacred Arunāchalam Hill in South India.
+
+Nārada, the divine minstrel, brings between them a game of dice.  It is the beginning of creation!  Shiva and Pārvati fight over the game, every few turns Shiva would announce himself the winner.  He was the “Lord of the Universe” and no one could overcome him, that was the cosmic reality.  “Friction is a necessary evil”, and their discord gives rise to the need for a solution, rules!  
+
+It is similar to the concept that Fire arises only by the friction of two aranis or the sticks used for generating it. See Agnyadhana.
+
+Pārvati decides that for a fair engagement, there must be some rules that both must agree to abide by.  Only then could an outcome be fair and binding upon both.  So Pārvati lays down the rules and both begin to play.  This is a very poignant incident, for only the “saguna” can define “rules”, for the “nirguna” all rules will be equally fair, relevant or irrelevant.  With the rules now agreed upon, they begin to play again.
+
+This time, and every time after, Pārvati wins, declaring that only she can overcome the mighty Shiva.  Shiva soon looses his trident, the crescent moon, Vāsuki the snake, damru, his earrings, and even his loincloth.  He looses to Pārvati his powers, his army or the “gana”s and even Nandi.
+
+Shiva accepts the consequences with a mere shrug of his shoulders and goes to the forest to meditate.  This narrative reveals another hidden experience. The Purāna stresses the fact that Shiva accepts the consequences of his actions, but does not accept defeat.  How can the nirguna accept “the reality of win or loss”?!  Buddhi Yoga is also a game without a “winner or looser”, however the players must accept the result of their throws on the dice.
+
+Pārvati, living in the plenty of her wins, soon starts missing the presence of Shiva.  She feels lonely and frustrated.  Those of us who are “unaware of our consciousness”, who are living in “avidyā” or ignorance are like Pārvati.  We, like Pārvati are searching for fulfilment, not realising that Shiva is within us.  It is Pārvati’s desire to return to her Lord Shiva that inspires us all, but most importantly, reveals and defines our own inner longing, our journey in search of the “nirguna”!  The hunger within cannot be assuaged, no matter how much we indulge in the desires of the body and the lures of the material world.
+
+Pārvati finds him alone in the forest and tries to win him back, and so begins the famous legend that continues to roll back and forth just like dice on a board.
+
+The Rig Veda, the Māndukya Upanishad and the Śvetāśvatara Upanishad speak of two birds, the Jiva and the Iśvara sitting on two branches of a tree as an allusion to the duality of Pārvati and Shiva in our manifested forms.  Pārvati is our “mind”, our cognisable self.  Shiva, the observer beyond!  As the bird on the lower branch looks up towards the one sitting on the higher branch, it realises its own glory and gets freed from sorrow.
+
+Buddhi Yoga is a platform that (re)introduces the “seeker’s gaming platform”.  There was a time when the child was seen to be a “seeker”.   He was seen to be constantly questioning and learning through questions.  He needed a “guru”, a guide. He had four paths to choose from, that of a khashtriya, a vaishya, a shudra or a brāhmana.  Depending upon his “sanskāra” he would be born into one of these paths, however, he could choose any that he felt he belonged to.
+
+Today, possibly, the child is “a new PAN number”, a “responsibility”, a “purpose of someone’s life”, a “limited identity” with a “small individual recognition”.  An aspect of his future is still decided by his birth into a specific race, a social class, a particular geography and the religious inclination of his parents.  However, “he” is not a “seeker”.  “He” does not ask questions, but quietly listens. “He” is authoritatively told and taught. “He” is branded into narrower and narrower specialisations and identities making “him” more and more unique. “Being different”!  
+
+This “he” is a reflection of the indivisible, infinite, cosmic consciousness that can not be different because “he” is “nirguna”.  The “she” is our “saguna” self, our manifested body, our “taught mind”, our “acquired taste”, our tool of engagement.  The narrowness of the mind that sees manifestations and duality has been condemned in the Upanishad.  "When one sees another, one hears another, one know another - then there is a limitation" (Chh. Up. 7.14.1)
+
+Who plays, when we play?  The bird on the lower branch, our “saguna self”, plays.  Regardless of our gender, as seekers we must connect to the femininity of our “saguna” self to enjoy the search for “his” presence within us and our journey towards “him”.  The player in Buddhi Yoga must therefore identify as “she”.

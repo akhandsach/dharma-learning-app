@@ -1,0 +1,2 @@
+Category:Mahabharata
+Category:Itihasa

@@ -1,0 +1,77 @@
+The **Chaandogya Upanishad** (Sanskrit: छान्दोग्योपनिषद्, IAST: *Chāndogyopaniṣad*) is a Sanskrit text embedded in the Chandogya Brahmana of the Sama Veda. It is one of the oldest Upanishads.  
+
+The Chandogya Upanishad is notable for its lilting metric structure, 
+its mention of ancient cultural elements such as musical instruments, 
+and embedded philosophical premises that later served as foundation for Vedanta school of Hinduism. It is one of the most cited texts in later *Bhasyas* (reviews and commentaries) by scholars from the diverse schools of Hinduism. It has gained importance as one Upanishad for which Adi Shankara has cited Chandogya Upanishad 810 times in his *Vedanta Sutra Bhasya*, more than any other ancient text. 
+
+## परिचय || Introduction
+The Chandogya Upanishad is slightly smaller in extent than the Brhadaaranyaka Upanishad. Its importance is due to the fact that it directly deals with the true nature of Brahman, the Supreme Self, or Advaita without a second, and its identity with the Individual Self.  This Upanishad though mainly deals with the Science of Non-Duality, yet in it are described the forms of Upasana (meditation and worship) as the means of the attainment of good results; for, these bring about results which are as good as Liberation itself.  There is also a similarity between the Upasana and the knowledge of Non-Duality in that both are esoteric in their character and both fall within the purview of the functions of the Mind. These forms of Upasana purify the inner-sense-organs and thereby become illuminative of the true nature of the reality, and so they are helpful in bringing about the Cognition of the Absolute (अद्वैतज्ञान); and as they (Upasanas) have got some definite substratum as their object (आलम्बनविषय), it is also easier to achieve success in it.  
+
+## Structure of the Upanishad
+This Upanishad is one of the largest compilations comprising of the last 8 chapters of the Chāndogya Brāhmaṇa; thus it contains  eight *Prapathakas* (literally lectures, chapters). Each Prapathaka is divided into sections and each section contains a number of verses. So, a verse is identified by Prapathaka or Chapter, section and verse number respectively like 6.2.1. In size this Upanishad comes next to Bṛhadāraṇyaka.  The volumes are a motley collection of stories and themes. As part of 
+the poetic and chants-focussed Samaveda, the broad unifying theme of the
+Upanishad is the importance of speech, language, song and chants to 
+man's quest for knowledge and salvation, to metaphysical premises and 
+questions, as well as to rituals.
+
+Sage Uddālaka Āruṇi whom we have seen in Bṛhadāraṇyaka asking questions on the principle that holds together and rules from within all beings, is the leading figure in this Upanishad. Here we see him teaching his son Śvetaketu about the ultimate or true nature of Brahman. His teaching is the most important part of this Upanishad and it forms the contents of chapter 6. The famous declaration of ‘Tattvamasi’ is also found in this chapter, as uttered by Uddālaka Āruṇi.
+
+## Prapathaka 1
+Sankaracharya’s bhashya of Chandogya Upanishad emphasises the fact that for the realisation of Brahman, the Savikalpaka form of Meditation is more useful. It is therefore, that the Upanishad sets forth in the very beginning various forms of Upasana of Brahman. 
+
+After this the Upanishad proceeds to deal with the syllable 'Om', and the Udgitha. The first chapter-beginning with the words-' One should meditate upon the syllable ‘Om ', has been devoted to the treatment of the manner of Meditation of the constituent factors of the Sama which leads to various results.
+
+This chapter contains 13 sections, of which the first opens with a call to meditate upon the syllable ‘Om’. The syllable ‘Om’ represents the Ultimate Principle of Ātmā which is SAT-CHIT-ĀNANDA in essence. Ātmā is free from all dualities such as pleasure-pain, affection-aversion, heat-cold, ups-downs that define the diversity of physical manifestation. It is these dualities that cause the miseries in the worldly life.  Since Ātmā is free from all dualities, it is advisable to stay close to it as far as possible for this purpose. That is why one meditates upon ‘Om’ which is verily the symbol of the principle of Ātmā. Verse 1.1.10 declares that only those actions that are performed with knowledge, faith and meditation is more efficacious (1.1.10). 
+
+Section 2 speaks of rivalry between Devas and Asuras, which we may understand as the unending conflict between two opposite forces in every being.
+
+The third chapter proceeds with the Upasana of the Sun, who is identified with and Brahman who is the summation of the results of all sacrifices. By the way, the Upanishad tells us of the excellent results which the Brahmavidya brings about.
+
+## Prapathaka 2
+In the second chapter the Upasana of the entire Sama has been given.
+
+In this chapter Verse 2.23.1 sets out the collection of laws (धर्मस्कन्ध) one should abide by, for leading a virtuous life; they are (i) Sacrifice, Study and Charity (yajña, adhyayana, dāna – यज्ञ, अध्ययन, दान); (ii) Austerity (tapas); and (iii) Chastity and Living in preceptor’s house (brahmacarya and ācāryakulavāsī – ब्रह्मचर्य, अचार्यकुलवासी). All these lead to the world of the virtuous; but, only one who is firm in Brahma attains immortality.
+
+In verses 2.23.2 and 2.23.3 we see a description of how the syllable ‘Om’ evolved from intense meditation by Prajāpati. The worlds on intense meditation gave forth the Vedas (प्रजापतिर्लोकान् अभ्यतपत् तेभ्योഽभितप्तेभ्यः त्रयी विद्या संप्रास्रवत् – prajāpatirlokān abhyatapat tebhyoഽbhitaptebhyaḥ trayī vidyā saṃprāsravat -2.23.2), which in turn gave forth the ‘bhur-bhuva-svaḥ’ in the same manner. It is these three sounds that finally gave forth the syllable ‘Om’ through the same process. Thus ‘Om’ is the abstraction of all the Vedas and all the worlds; ‘Om’ is all this (ओंकार एवेदं सर्वम् – oṃkāra evedaṃ sarvam – 2.23.3).
+
+## Prapathaka 3
+This chapter starts with an enquiry into the essence of various objects in this phenomenal world and finally comes to the conclusion that all this is Brahma only (सर्वं खल्विदं ब्रह्म – sarvaṃ khalvidaṃ brahma – 3.14.1); everything originates from it, exists in it and finally merges into it. 
+
+In the following three verses, viz. 3.14.2, 3.14.3 & 3.14.4 we see what Brahma is. It is Ātmā who is absolute cognizance, having vital air (प्राण – prāṇa) as body, brilliance as appearance and ether (आकाश- ākāśa) as form; within him are all deeds, all desires, all smells, all tastes and he pervades everything here; he is calm and also unattached (3.14.2). This is the very same Ātmā that is in our inner heart of consciousness; smaller than a corn, barley, or the kernel of mustard seed and at the same time greater than the earth, the sky and all these worlds (3.14.3). One attains to Ātmā, on leaving this phenomenal existence (3.14.4).
+
+The implication is that Ātmā is the subtlest of the subtle and grossest of the gross; it pervades all beings and things. Ātmā is one without a second; it is an incessant continuity, without any break, pervading the entire universe. The description about body, appearance, etc. is an indication that it is not graspable by sense organs.
+
+## Prapathaka 4
+In this chapter we see some stories about how certain people sought to know the Brahman. The most interesting of these is that of Satyakāma Jābāla (4.4.1 to 4.9.3). The boy Satyakāma wanted to be initiated into religious studies; in order to approach a teacher for the purpose, he needs to know the name of his clan (family). He asked his mother; her reply was very strange. She said, I do not know, my child, of what family you are. In my youth I used to move about much, as a servant and then I conceived you. So, I do not know of what family you are. But I am Jabālā and you are Satyakāma; so mention yourself as Satyakāma Jābāla. He went to the teacher by name Gautama, son of Haridrumata and requested to be instructed. About his clan, he revealed what his mother said. Gautama was impressed by his honesty and took him as a student. Then Gautama chose four hundred lean and weak cows and asked Satyakāma to go with them. While going with the cows, Satyakāma vowed that he would return only when the number of cows rises to thousand. When the cows were thousand in number, the Bull in the herd asked Satyakāma to take them to teacher’s house. The Bull also instructed him on one quarter of Brahman, ‘Brahma is Radiant’ (prakāśavān – प्रकाशवान्). The radiant Brahman consists in the four directions. Satyakāma learned about the other three quarters of Brahman from Fire, Haṃsa (flamingo) and Madgu (water-bird). They respectively taught him about Brahman as Endless (anantavān – अनन्तवान्), Effulgent (jyotiṣmān – ज्योतिष्मान्) and as the Abode (āyatanavān – आयतनवान्) respectively.
+
+Having thus learned about Brahman, Satyakāma returned to his teacher, who found him to be shining endowed with the knowledge of Brahman. Satyakāma told him that he was taught about Brahman by those other than humans; but he still wanted to be taught by the teacher as he had heard that knowledge learnt from the teacher is the best. The teacher indeed taught him, but it was same as what he had already learned. 
+
+## Prapathaka 5
+The first section of this chapter says about a dispute between the organs of speech, eyes, ears, mind and breath, on who among them is the best. They approached their father Prajāpati to resolve the dispute. He told them, He is the best on whose leaving, the body becomes the worst. Then, each of them in turn left the body and stayed away for a year; when finally, the breath was about to depart, the other organs began to be detached from their respective places. Thus, it was established that breath (prāna) is the best among them (5.1.1 to 5.1.15).
+
+## Prapathaka 6
+This is the most important chapter of the Chāndogya Upanishad; for, it takes us to the most expressive declarations of Ātmā and Brahman. These are revealed in a conversation between Śvetaketu and his father Uddālaka Āruṇi. 
+
+## Prapathaka 7
+This chapter is about Sanatkumāra teaching Nārada on the enquiry into the ultimate principle of Ātmā. Nārada approaches Sanatkumāra saying that he knows all the Vedas and ancillary literature, but still has not overcome sorrow as he does not know the Ātmā. This may remind us about the context and relevance of the question Uddālaka Āruṇi was asking his son Śvetaketu in 6.1.2 above. Now, Nārada similarly asks for that instruction which would carry him beyond sorrow. Accordingly, Sanatkumāra teaches Nārada starting with the possibilities and limitations of meditating upon various objects. This episode of Nārada justifies Uddālaka’s criticism of Śvetaketu’s presumed conceit.
+
+## Prapathaka 8
+The last chapter contains a very detailed discussion on Ātmā and Brahman. The chapter opens with a direction about what should be sought for and known; it is that which is there in the space inside the lotus-abode within our Heart (8.1.1).<blockquote>"*.. यत् इदं अस्मिन् ब्रह्मपुरे दहरं पुण्डरीकं वेश्म दहरोഽस्मिन् अन्तराकाशः तस्मिन् यदन्तः तदन्वेष्टव्यं तद् वाव विजिज्ञासितव्य्म् … || 8.1.1 ||*"</blockquote><blockquote>"*… yat idaṃ asmin brahmapure daharaṃ puṇḍarīkaṃ veśma daharoഽsmin antarākāśaḥ tasmin yadantaḥ tadanveṣṭavyaṃ tad vāva vijijñāsitavym … (8.1.1)*"</blockquote>ब्रह्मपुर (brahmapura) means Heart; but it is not the heart of blood circulation. It is the centre of consciousness, which in modern scientific parlance is Thalamus. What is the authority for this claim? Verse 3.6 of Praśna (प्रश्न) Upanishad says that the Heart, which is supposed to be the seat of Ātmā, is where the nerves are connected. Ātmā, we know, is pure consciousness in essence (in addition to existence and bliss) and therefore, its seat is the centre of consciousness. This is Thalamus, because, it is the nerve centre and is considered to be the switch board of information. All signals come to it and then transmitted to the concerned organs. Through the nerves emanating from the Thalamus, consciousness pervades throughout the body. Thus, Ātmā is in the Heart and the verse says that it is that (Ātmā) which should be sought for and known. Most interpreters take the word ‘Heart’ to mean the heart of blood circulation and consequently misinterpret nāḍi (नाडि) in the scriptures as artery instead of the true meaning of ‘nerve’; this mistake results in misleading the understanding and conveying the true message of the Upanishads. 
+
+In 8.1.5, it is declared that Ātmā is not deteriorated by old age when the body gets old and does not become dead when the body is dead; the Heart is Satyam and therein are established all the wishes; but Ātmā is free from evils, old age, death, sorrows, hunger and thirst; whatever he wills and resolves, they all come true. The expression, ‘Ātmā is free from evils, etc.’ means that Ātmā is devoid of all dualities of evil-virtue, pleasure-pain, etc; it is pure (serene) SAT-CHIT-ĀNANDA which transcends all the dualities.
+
+In continuation of what is said in 8.1.1, it is stated in 8.3.3 that this Ātmā is in the Heart. The etymology of the word ‘Heart’ is given here as: हृदि + अयम् = हृदयम् (hṛdi + ayam = hṛdayam). ‘hṛdi’ means in the inner chest; ayam indicates Ātmā. Therefore, Heart or hṛdayam means the inner chest where Ātmā is seated. 
+
+Verse 8.6.3 says that when a person is fast asleep, in perfect rest, his consciousness withdraws from the sense organs and remains within the nerves; he is then possessed solely by the brilliance of Ātmā; then he knows not sorrows.
+
+Verse 8.6.6 tells us about the number of nerves. The verse is,<blockquote>"''शतं चैका हृदस्य नाड्यः तासां मूर्धानमभिनिःसृतैका
+तयोर्ध्वमायन्नमृतत्वमेति विष्वङ्ङन्या उत्क्रमणे भवन्ति || 8.6.6 ||*"</blockquote><blockquote>"*śataṃ caikā hṛdasya nāḍyaḥ tāsāṃ mūrdhānamabhiniḥsṛtaikā tayordhvamāyannamṛtatvameti viṣvaṅṅanyā utkramaṇe bhavanti (8.6.6)''"</blockquote>Meaning: ‘There are 101 nerves attached to the Heart, of which one goes up; moving by that nerve, one attains immortality. All other nerves lead to different directions’.
+
+The same verse is seen repeated in Kaṭha (कठ) Upanishad at 6.16 and the same topic is dealt with in detail in 3.6 and 3.7 of Praśna (प्रश्न) Upanishad. The Praśna says that the number of main nerves is 101 which branch into secondary and tertiary nerves, the entire total being 72 crores and 72 lakhs. The one that refers to in the above verse is obviously a main nerve. Since its direction is upwards, it must be inferred to be the communication highway of the brain. The upward movement through the nerve, mentioned in the verse, must be directed to the brain which actually is the centre of knowledge. ‘Going upward’, therefore, means ‘going to the brain’ which, in turn, implies pursuing knowledge. Cumulatively, the declaration in the verse would mean that by acquiring knowledge one would be able to attain immortality. The remaining nerves, on the other hand, are entrusted with bodily functions; therefore ‘following them’ means indulgence in worldly pleasures, which would lead us astray. 
+
+## References
+# Chandogya Upanishad with Shankara Bhashya, by Ganganath Jha
+#The Science of Chandogya Upanishad Posted by Karthikeyan Sreedharan | Mar 27, 2017 | Articles on Hinduism in Indiadivine.org
+Category:Upanishads
+Category:Vedanta
+Category:Prasthana Trayi

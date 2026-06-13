@@ -1,0 +1,23 @@
+The following is Pitamaha Bheeshmar’s advise to Pandava Yudhishtrar in Shanti Parva, Chapter 205 of Mahabharata. The advise is in the form of a conversation between Rishi Nibhandhanar and his mother, Bhogavathi. 
+
+One day Bhogavathi found Nibhandanar idling in the house.  She scolded him and said, “You idiot. Why are you idling in the house without doing any constructive work. Look at you.  You are lean, thin and dry skinned.  You have no friends. You do not care for relatives. Do you think that your father has left you enough money for an easy life. Get up and go. Find yourself an occupation to provide for yourself for the present and future”. 
+
+On hearing this, Nibhandhanar said, “Oh! Mother.  My father has left me enough. Don’t you see that he has given me this body. Within this body he has gifted me countless number of problems, anxieties and worries. I am aware of that.  I am trying to get rid of them. But he has given me an indestructible wealth also. Have no doubt on that”. “I will tell you a story.  A brahmin was born in a large poor family. As he grew older, he decided to out and seek his fortune, like the  way you are telling me now” 
+
+“On his quest to reach the city, he reached dense forest where wild, dangerous and exotic animals were roaming. He took courage and entered the forest. Midway in the dense forest, he was chased by a lion, later by a leopard and much later by an elephant with six faces and twelve legs. The tired brahmin, in his bid to escape, fell into a deep well,  unused for several decades, covered by bushes and roots of the nearby trees”.
+
+“Within the well  a huge fruit bearing tree had grown with one very enticing fruit, right before him in one of the branches. He caught hold of that branch.  As he caught hold of that branch, one incredibly beautiful maiden materialised before him and embraced him tightly. The brahmin was embarrassed and shocked. At the same time, he observed a huge Python approaching very slowly towards him.. Now he was terrified”. 
+
+“Because of the fall, the bees and other insects, some brightly colored and shining, inside the well, got disturbed and  started hovering around him”. “He realised that the beautiful maiden is stronger than him  and clung to him more fiercely as each second passed”. “The brahmin was totally helpless and forlorn. As he looked up, to find a way out of this precarious situation, he observed two rats, one white and another black, nibbling away at the particular branch of the tree which he is holding”.  When he was staring at the rats, the beehive above him opened up and the honey started dripping directly on to his face. The brahmin involuntarily opened his mouth and started drinking the honey. The more he drank, he wanted more insatiably”. 
+
+Nibhandhanar continued. “Mother! This is what I have. This is  the wealth my father has left for me. But he has also given me an intellect of which I am proud.  I plan to use this,  to search for truth”. On hearing this from her son, Bhoghavathi realised the true worth of her son, released him from her affection and became an enlightened lady. Nibhandhanar then went on his pursuit of truth. 
+
+As Pithamahar Bheeshmar finished the story, Uthishtrar said, “Oh! Pithamaha. What is the purport of this story.  I am confused” 
+
+“What is this forest you talked about? What are the animals? What is that exotic elephant? What is that big tree in the well? What is the fruit?
+
+Who is that young beautiful maiden? What is that huge Python? What are the rats and why are they black and white?” 
+
+Bheeshmar said “Yudhishtra. In this context, the forest is one’s ‘life’”. “The permanent features/residents of this forest are the animals. In one’s ‘life’ they are called  ‘diseases’. “The young maiden in the narration is ‘old age’. She is strong and will never leave you even for a second”. “The Python is ‘Time’. “The tree is death. “The enticing fruit in the tree is the ‘result of your karma”.  “The black and white rats are ‘day and night’”. “The six faces of the elephant are the periods” “Its twelve legs are months in  a year”. “The honey denotes one’s insatiable desire and the greed for more inspite of adverse circumstances in life”. “Yudhishtra. This is often narrated by men who have achieved ‘peace’ and  ‘Truth’ and who have attained.” “Bhogavathi, the mother of Nibhandhanar, immediately realised the meanings of her son’s narration and obtained the ultimate benefit.
+
+Nibhandanar went in pursuit of the “Truth”.

@@ -1,0 +1,20 @@
+Air conservation (Samskrit: वायुसंरक्षणम्) elaborates on the importance and conservation of air as seen in the Vedas.
+
+## परिचयः ॥ Introduction
+Air is one of the five great elements or Panchamahabhutas. Atmospherically, air is a mixture of several gases, dust, smoke and water content. Out of which, about 21 percent of its total volume is oxygen. This oxygen is known as Prana Vayu. And without this, life cannot exist.
+
+## वायोः महत्त्वम् ॥ Importance of Air
+In the Atharvaveda, mentioning the importance of air, it has been said that air helps in transporting water everywhere, which brings prosperity.<blockquote>उत्समक्षितं व्यचन्ति ये सदा य आसिञ्चन्ति रसमोषधीषु । पुरो दधे मरुतः पृश्निमातॄंस्ते नो मुञ्चन्त्वंहसः ॥२॥ utsamakṣitaṁ vyacanti ye sadā ya āsiñcanti rasamoṣadhīṣu । puro dadhe marutaḥ pr̥śnimātr̥̄ṁste no muñcantvaṁhasaḥ ॥2॥</blockquote>Meaning: Those who carry the water through the air here and there in many ways, who bring essence into medicines, I keep such Maruts (air deities), born from mother antariksha, in my vicinity. Such air deities release one from all sufferings. The Vedas offer respect to the air deities, known as Marut Ganas, and pray that may they protect everyone.<blockquote>त्रायतां मरुतां गणः ।...॥५॥ trāyatāṁ marutāṁ gaṇaḥ ।...॥5॥</blockquote>The Rishi states that he contemplates on the Maruts for guidance and protection of food in the wake of an annadana. He compares the winds to fast moving horses who he calls out for his protection. And prays that these winds grant everyone freedom from all sorrows. <blockquote>मरुतां मन्वे अधि मे ब्रुवन्तु प्रेमं वाजं वाजसाते अवन्तु । आशून् इव सुयमान् अह्व ऊतये ते नो मुञ्चन्त्वंहसः ॥१॥ marutāṁ manve adhi me bruvantu premaṁ vājaṁ vājasāte avantu । āśūn iva suyamān ahva ūtaye te no muñcantvaṁhasaḥ ॥1॥</blockquote>Infact, there is a prayer in the Vedas referring to the rage form of air i.e. the storm and the loss that could occur from it. The Rigvedic Rishi calls the Maruts as capable of making the bhuloka and dyuloka tremble. Endowed with the qualities of leadership, the Marut Ganas are described as capable of disrupting the enemy forces like the storm uproots trees. <blockquote>... नरो दिवश्च ग्मश्च धूतयः । यत्सीमन्तं न धूनुथ ॥६॥ ... naro divaśca gmaśca dhūtayaḥ । yatsīmantaṁ na dhūnutha ॥6॥ </blockquote>The Rigvedic Rishi therefore, prays to the wind (vata) to protect us from the space. <blockquote>पातु वातो अन्तरिक्षात् ।...॥१॥ pātu vāto antarikṣāt ।...॥1॥</blockquote>In the Atharvaveda, air is also described as a destroyer of wrongdoing and suffering. The Rishi says,<blockquote>अपेतो वायो सविता च दुष्कृतमप रक्षांसि शिमिदां च सेधतम् । सं ह्यूर्जया सृजथः सं बलेन तौ नो मुञ्चतमंहसः ॥४॥ apeto vāyo savitā ca duṣkr̥tamapa rakṣāṁsi śimidāṁ ca sedhatam । saṁ hyūrjayā sr̥jathaḥ saṁ balena tau no muñcatamaṁhasaḥ ॥4॥</blockquote>Meaning: O Air and Sun, both of you together set aside those who are wrongful, dangerous and trouble others. Endow us with physical and spiritual strength and save us from wrong doings and thereby, free us from sufferings and sorrows. 
+
+## वायुसंरक्षणस्य अवश्यकता ॥ Need for Air Conservation
+As mentioned, it is said that oxygen is called Pranavayu in the Vedas and there has been emphasis on conserving air or keeping the air in pure form. This is the basic spirit of air conservation in the Vedas. It is not possible for living beings to survive without breathing in pure air. Therefore, it is important to concentrate on conservation of air.
+
+Stating the importance of air, it is said that air provides purity to all other things. It purifies the water. Therefore, the Vedas instruct us not to do any act which makes the air impure. Infact, air pollution is an unforgivable crime. In short, it can be said that, Vedic literature has placed a lot of emphasis on maintaining the purity of air.
+
+## References
+
+Category:Vedas
+Category:Darshanas
+Category:Shastras
+Category:Rigveda
+Category:Devatas

@@ -1,0 +1,22 @@
+Every act or conduct which was in disobedience to rules of Dharma was called Adharma and was declared to be injurious to society and the individual.
+
+Dharma or virtue is conformity with the truth of things while, adharma or vice is opposition to it. In his instructions to Yudhishthira, Bhishma says, 'whatever creates conflict is Adharma, and whatever puts an end to conflict and brings about unity and harmony is Dharma.' Therefore, anything that helps to unite all and develop pure divine love and universal brotherhood, is Dharma. Anything that creates discord, split and disharmony and foments hatred, is Adharma. Manu warns every individual in the following words:<blockquote>अधर्मेणैधते तावत् ततो भद्राणि पश्यति । ततः सपत्नात् जयति समूलस्तु विनश्यति ॥</blockquote><blockquote>*adharmeṇaidhate tāvat tato bhadrāṇi paśyati । tataḥ sapatnāt jayati samūlastu vinaśyati ॥*</blockquote>Meaning : Those who indulge in adharma attain immediate success and secure fulfillment of their desires. They overpower their opponents. But ultimately their ruin down to the roots is certain.
+
+The Bhagavata Purana (Skandha 7, Adhyaya 15) enumerating on Adharma says, those who have knowledge of righteous principles (true dharma), should steer clear of the five forms (branches) of adharma (impiety) known as follows(Verses 12-14):
+# Vidharma: धर्मबाधो विधर्मः | *dharmabādhō vidharmaḥ | ie.* Principles that obstruct one from following one's own true dharma are called Vidharma.
+# Para-dharma: स्यात्परधर्मोऽन्यचोदितः | *syātparadharmō'nyacōditaḥ | ie.* Course of conduct ordained for another varna or ashrama (e.g. fighting in the case of brahmanas).
+# Dharm-abhasa: यस्त्विच्छया कृतः पुम्भिराभासो ह्याश्रमात्पृथक् | *yastvicchayā kr̥taḥ pumbhirābhāsō hyāśramātpr̥thak |* ie. Pretentious course of conduct adopted, to willfully neglect the different duties prescribed by the Vedas for different varnas and ashramas, according to one's fancy (e.g. the avadhuta mode of life) is called dharma-abhasa.
+# Upadharma: उपधर्मस्तु पाखण्डो | *upadharmastu pākhaṇḍō | ie.* Newly coined principles, specially those coined by people with false pride and those who oppose the principles of the Vedas is called Upadharma. 
+# Chala-dharma: दम्भो वा शब्दभिच्छलः | *dambhō vā śabdabhicchalaḥ | ie.* Distortion of the text (through mis-interpretation) showing apparent conformity to the letter of the scriptures or quibbling.
+
+## अधर्मफलम् || Fruit of Adharma
+Manusmriti (Adhyaya 4) elaborates on the fruits of Adharma and the fate of those following the path of Adharma while discussing the importance of righteousness and truthfulness (सत्यवादित्वम्) as a quality to be upheld by a Snataka (स्नातक: । graduate). It says,
+* Adharma (unrighteousness), practised in this world, does not, like the Earth (or the Cow) bring its fruit immediately; but, accumulating gradually, it cuts off the roots of the perpetrator. (Manu. Smrt. 4.172).
+<blockquote>नाधर्मश्चरितो लोके सद्यः फलति गौरिव । शनैरावर्त्यमानस्तु कर्तुर्मूलानि कृन्तति || ४.१७२ ||</blockquote><blockquote>nādharmaścarito loke sadyaḥ phalati gauriva । śanairāvartyamānastu karturmūlāni kr̥ntati || 4.172 ||</blockquote>
+* One who is unrighteous, whose wealth is begotten unrighteously, and one who is always addicted to injuring, never obtains happiness in this world. (Manu. Smrt. 4.170).
+<blockquote>अधार्मिको नरो यो हि यस्य चाप्यनृतं धनम् । हिंसारतश्च यो नित्यं नेहासौ सुखम् एधते || ४.१७० ||</blockquote><blockquote>adhārmiko naro yo hi yasya cāpyanr̥taṁ dhanam । hiṁsārataśca yo nityaṁ nehāsau sukhaṁ edhate || 4.170 ||</blockquote>
+* Even if a person on the path of adharma, prospers at first, through wealth, experiences happiness and conquers his enemies, at last, he is destroyed from the roots. (Manu. Smrt. 4.174).
+<blockquote>अधर्मेणैधते तावत्ततो भद्राणि पश्यति । ततः सपत्नान्जयति समूलस्तु विनश्यति || ४.१७४ ||</blockquote><blockquote>adharmeṇaidhate tāvattato bhadrāṇi paśyati । tataḥ sapatnānjayati samūlastu vinaśyati || 4.174 ||</blockquote>
+* And if the fruit of adharma doesn't fall on the doer himself, it falls on his sons, if not on the sons then surely on his grandsons; but one does not get free without having to experience the fruit of one's actions. (Manu. Smrt. 4.173).
+<blockquote>यदि नात्मनि पुत्रेषु न चेत्पुत्रेषु नप्तृषु । न त्वेव तु कृतोऽधर्मः कर्तुर्भवति निष्फलः || ४.१७३ ||</blockquote><blockquote>yadi nātmani putreṣu na cetputreṣu naptr̥ṣu । na tveva tu kr̥to'dharmaḥ karturbhavati niṣphalaḥ || 4.173 ||</blockquote>
+## References

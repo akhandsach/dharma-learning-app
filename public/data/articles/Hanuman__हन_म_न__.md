@@ -1,0 +1,3 @@
+Hanuman, the son of Vayu (wind) sprang up into the sky as soon as he was born, seeing the brilliant rising sun, and mistaking it to be some delicious food. He saw Rahu who was standing near the sun and made a leap towards him. When he came near, he saw Airavata, Indra's elephant, standing in Devaloka. At once he turned towards that elephant to swallow him. Seeing the struggle between Hanuman and Airavata Indra used his weapon Vajra which cut the monkey's "hanu" (jaw bone) and he fell down dead on the earth. (Uttara Ramayana, Valmiki Ramayana; Kiskindha Kanda; 66th Sarga)
+
+Category:Ramayana

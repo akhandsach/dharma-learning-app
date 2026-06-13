@@ -1,0 +1,2 @@
+**Pywikibot** is a Python library and collection of scripts that automate work on MediaWiki sites.
+Originally designed for Wikipedia, it is now used throughout the Wikimedia Foundation's projects and on many other wikis.

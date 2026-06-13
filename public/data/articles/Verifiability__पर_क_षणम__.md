@@ -1,0 +1,11 @@
+Verifiability (Samskrit : परीक्षणम्) means that anyone studying an article can personally check that the information presented there is coming from a reliable source. Dharmawiki accepts and references published works, original research is not within the scope of Dharmawiki. Content presented on this site refers to concepts that have been previously published and discussed in scholarly circles rather than the personal beliefs or experiences which have not been validated. Here we discuss "verifiability" in two contexts. One is with respect to the textual references or citations given to original sources on the site and the other is consideration of Vedas as the primary pramanas for the mankind.
+
+Verifiability (परीक्षणम्) in Bharatiya tattva shastras has been referred to extensively in the discussions about Pramanas. Since the time of systematization of various darshana shastras, we have come to accept  the three kinds of Pramanas viz., 'Prathyaksha (Perception) Pramana' which is physical verifiability, Anumana (Inference) Pramana which is indirect reference and Shabda Pramana, which is a Vedic text. Thus Vedas are our Pramanas for all Sanatana Dharma concepts. The systematization of Pramanas (described in the Nyaya shastra) shows that our ancients were not blindly accepting any point of view, but they were discussed and debated extensively among scholars of those days, from which the whole shastra itself evolved.
+
+Now, from the point of view of the Western philosophers Shabda pramana is discounted, if it is textual kind of teaching then it becomes a dogma. However, in Sanatana Dharma the vedic texts are a form of Pratyaksha Pramana, of higher sober physical verifiability. The followers of this ancient tradition do not consider the Vedas as "written texts" but as knowledge (jnana) "revealed" by rshis  who visualized and experienced it in higher conscious state of existence; thus Vedas are Apaurusheya.     
+
+This is explained taking music for example. Music is not verifiable in terms of your physical ears. Good music is delightful and the bliss that one gets out of it cannot be verified. It is an experience. Experience has to be tallied with experience only, not a textbook of logic or any other action. In Kathopanishad, Yama instructs Nachiketa that even the words are limited when it comes to experience. 
+
+## Reference
+
+Category:DPOV

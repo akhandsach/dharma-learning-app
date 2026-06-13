@@ -1,0 +1,16 @@
+The story of the great Cyavana maharṣhi, the vaidyanipuṇa, is well known. Cyavana was the son of Bhṛgu maharṣhi and Pulomā devi. Once Bhṛgu maharṣhi asked Agnideva to protect Pulomā, who was a garbhavati, till he comes back and went away. A rākṣhasa by name Puloma came and asked Agnideva "is she Pulomā?" (if yes then he was planning to take her away!). Agnideva did not know what to do. If he tells the truth Bhṛgu maharṣhi may get angry, else he may get anṛta-doṣham. So finally after being forced by Puloma, Agnideva said "She is the wife of Bhṛgu maharṣhi." Immediately Puloma took the form of a varāham and forcibly took Pulomā. In this, from her garbham, the baby slipped and fell down (and hence was known as "Cyavana").
+
+The baby had the tejas of Brahma and Puloma rākṣhasa turned into ashes on seeing Cyavana. Later Cyavana did many years of tapas and became a very great ṛṣhi. He and his wife Sukanya had dadhīci, pramati and āpravān as santānam. After a long time passed, once Cyavana maharṣhi did 12 years of tapas inside water. During his tapas, some fishermen came and as usual threw thier fishing net and were trying to catch fish. To their surprise, they saw Cyavana maharṣhi caught in their nets. The fishermen trembled with fear. But Cyavana maharṣhi said "it is not wrong to do your duty. Please do not be afraid that you disturbed my tapas". But the fishermen thought they were responsible for stopping the tapas of the maharṣhi and reported their mistake to their King, Nahusha.
+
+The maharṣhi told the King that it was not the mistake of the fishermen, they were just doing their duty. In addition he said "Please decide a rate for me and give that money to the fishermen, since their effort must not go waste." King Nahuṣha did not know how to rate the maharṣhi. He offered his artha-rājyam. Cyavana said that wont be enough. Then the King said then take my entire rājyam! Cyavana said that is not the approriate rate for him. Meanwhile a maharṣhi named Kavijāta came and told the King "Please offer one cow. That will be equivalent to a ṛṣhi." Knowing the greatness of the cow from Cyavana, Nahuṣha gave away a best quality cow to the fishermen and sent them off.
+
+The fishermen were not any less in good character. They thought "we can get money anytime. Let us utilize this chance and get godāna phalitam by giving this cow to the great maharṣhi." Thus they gave off their cow to Cyavana. Cyavana blessed all of them with svargalokam.
+
+## Discussion
+From the above anecdote one can summarize the following aspects.
+# Cyavana, though his deep tapas was disturbed by the fishermen, did not get angry on them. This is because the fishermen did their duty and were unware of the presence of Cyavana.
+# The fishermen, knowing that if not now sometime or the other the must face consequence of their acts, reported their mistake (what they thought was a mistake) to the King.
+# Importance of Gomāta and Godānam is well displayed in the story.
+# Nahuṣha was prepared to give away his entire sāmrājyam for doing his duty as a King.
+
+Category:Rishis

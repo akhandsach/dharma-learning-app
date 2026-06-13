@@ -1,0 +1,22 @@
+Simhika (Samskrit: संहिका) was the daughter of Prajapati Kashyapa and Diti  and the sister of the asuras Hiranyakashipu and Hiranyaksha according to Vishnu Purana. Also known as Holika, according to one version, she is said to have plotted to take the life of Prahlada, the son of Hiranyakashipu, by setting him on fire. Signifying evil intentions, symbolically Holika is set afire by people of Bharatavarsha commemorating an important festival of Holi every year. 
+
+Amsa 1, Chapter 15, and Agni Purana Chapter 19). Two sons named Hiranyakasipu and Hiranyaksa and a daughter named to be known by the name Saimhikeyas. (But it is stated in Mahabharata, Adi Parva, Chapter 65, that Simhika was the daughter of Prajapati Daksa and the wife of KaSyapa.) A story occurs in Ramayana, that this Simhika caught hold of Hanuman by his shadow and swallowed him, while he was jumping to Lanka, and that Hanuman escaped from her. (Page 718, Puranic Encyclopedia - Vettam Maṇi)
+
+## Lineage and Family
+In the battle between the Devas and the Asuras, most of the Asuras were killed and one Asura fled from the clutches of death to Patala (the lower world). Surasa was the daughter of that Asura. Kasyapa married Surasa. To them were born the two daughters, Angaraka (Simhika) and Ajamukhi, and four sons, called Surapadma, Simhavaktra, Tarakasura and Gomukha. Thus Simhika is the sister of Tarakasura. (Skanda Purana, Asura Kanda).
+
+Kasyapa married Diti, daughter of Daska. Diti was a younger sister of Aditi. The sons of Aditi became devas and the sons of Diti became asuras. Diti gave birth to two sons named Hiranyaksa and Hiranyakasipu and a daughter Simhika. Simhika was given in marriage to Vipracitti. They had two sons, Rahu and Ketu. Five sons were born to Hiranyaksa and four sons were born to Hiranyakasipu. These four sons were : Anuhlada, Hlada, Prahlada and Samhlada. (Visnu Purana, Amsa 1, Chapter 15 and Agni Purana, Chapter 19). (Page 44, Puranic Encyclopedia - Vettam Maṇi)
+
+Kasyapa had 21 wives who were: Aditi, Diti, Danu, Arista, Surasa. Khasa, Surabhi, Vinata, Tamra, Krodhavasa, Ira, Kadru, Muni, Puloma, Kalaka, Nata, Danayus, Simhika, Pradha, Visva, and Kapila. Of these, the 13 wives, Aditi, Diti, Kalaka, Danayus, Danu, Simhika, Krodha, Pradha, Viiva, Vinata, Kapila, Muni and Kadru, were the daughters of Daksa. (Page 396, Puranic Encyclopedia - Vettam Maṇi)
+
+SAIMHIKEYA (S). The Asuras (Demons) who were the sons of Simhika.. Two sons named Hiranyaksa and Hiranyakasipu and a daughter named Simhika were born to Prajapati Kasyapa by his wife Diti. Simhika was given in marriage to Vipracitti. The sons of this couple were known by the name Saimhikeyas. Rahu was the first of the Saimhikeyas. (Agni Purana. Chapter 19). (Page 666, Puranic Encyclopedia - Vettam Maṇi)
+
+## Legend in Ramayana
+This giantess Arigaraka had a clash once, with Hanuman. Sugriva had sent a large number of monkeys under the leadership of Hanuman to search for Sita. He gave Hanuman certain instructions regarding the route he had to follow. Sugriva said, <nowiki>''</nowiki>There is a giantess in the middle of that Southern Sea. Her name is Angara. She pulls the shadow towards her and feeds on the object of the shadow." From this it is clear that she was a giantess who lived in the sea between Lanka and South India. She knew the art of bringing to her side, anybody who passed over the sea, by pulling at his shadow. When Hanuman jumped to Larika from the mountain of Mahendra the giantess attacked Hanuman. It is seen that the name Simhika also is used for Arigaraka. Hanuman who was subjected to the excessive attraction of Simhika, felt a great storm raging round him. Finally he found her out, a monster with such an uncouth face and a mouth as wide as the hole of Patala (the nether world). There was a terrible fight between Hanuman and the monster, in which Simhika, fell on the ground beaten. After the fight Hanuman resumed his journey. (Valmiki Ramayana, Sundarakanda, Sarga 1, Stanzas 178 to 186). (Page 39-40, Puranic Encyclopedia - Vettam Maṇi)
+
+SUCANDRA -This asura was the son of Simhika. (Mahabharata, Adi Parva, Chapter 66, Verse 46).
+
+SUPUNJIKA. Son of Vipracitti by Simhika. He was killed by Parasurama. (Brahmanda Purana, 3.6. 13-12).
+Category:Puranas
+Category:Itihasa
+Category:Asuras

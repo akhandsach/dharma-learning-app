@@ -1,0 +1,24 @@
+Vasishta (Samskrit : वसिष्ठः) is one of foremost of the Saptarshis (सप्तर्षिः) and is one of the Brahma-manasa-putras. He is the famous Rajaguru of the Ikshvaku lineage, to which Dasaratha Maharaja and Sri Ramachandra belonged to.
+
+Vasistha with the radiance of Brahma, is very famous in the Puranas and is described to have had three births.
+
+## Brahma Manasaputra
+Birth. Vasistha is one of the mental sons of Brahma. This is the first birth of Vasistha. "Narada was born from the lap, Daksa was born from the right thumb, Vasistha from the breath (prana) Bhrgu from the skin, Kratu from the hand of Brahma." 
+
+### Family
+Arundhati (अरुन्धती) is the wife of Vasishta in this birth. In some other Puranas Arundhati is given as the daughter of Prajapati Kardama and Devahuti. Seven sons, named Citraketu, Purocis, Viraca, Mitra, Ulbana, Vasubhrdyana and Dyuman were born to Vasistha by Arundhati. All the seven of them were Brahmarsis. 
+
+### = The meaning of the names Vasishta and Arundhati.=
+The meaning of the name Vasistha is given by Vasistha himself as follows: I am known as Vasistha for two reasons. I am 'Vasuman'. The Srutis say that Air, Earth etc. are Vasus. I have become Vasistha because I have brought under control the Vasus beginning with Anima (the power of reducing the body to an atom) . See what Arundhati herself says, about the meaning of the name Arundhati. "I consider mountains, earth and heaven as elements in which I live, only after considering my husband as the element in which I live. My husband is the first and foremost element in my life. Moreover I conform (anurodha) with the mind of my husband. So know me as Arundhati."(Page 834 of Puranic Encyclopedia).
+
+## Association with Vishvamitra
+Once while Visvamitra was a ruling King, he went into a forest to hunt. In the course of his rambles through the forest, he happened to arrive at Vasistha's Asrama with his retinue. Vasistha called Kamadhenu and ordered her to provide food for Visvamitra and his party. Kamadhenu, by her divine powers, prepared food within a short time and gave them a sumptuous meal; Visvamitra was greatly pleased with this amazing feat of Kamadhenu and he asked Vasisdia to give her to him. He even offered to give crores of cows in return for her. But Vasistha refused to comply with his request. Then Visvamitra tried to seize and take her away by force. At once Kamadhenu assumed the form of a terrible monster of destruction. From the different parts of her body emerged fierce warriors who clashed with Visvamitra's followers. All the arrows shot by Visvamitra were caught by Vasistha with his hand. In the end Visvamitra admitted that the might of a Brahmana is superior to the might of a Ksatriya. (Vasistha was a Brahmana and Visvamitra a Ksatriya). Visvamitra, soon gave up his kingly duties and began penance, thus turning himself into a "Rajarsi" (Royal saint). (Valmiki Ramayana, Bala Kanda, 52nd Sarga ; M.B. Salya Parva, Chapter 40 ; M.B. Adi Parva, Chapter 175)
+
+## Association with Srikalahasti
+Once, even Vasishtha fell in the trap of Maya and lamented when he lost all his sons. Unable to bear the grief he jumped off a cliff in order to kill Himself. Then Bhudevi caught him safely and said “Will death stop another Janma? No! Death will only change our body and the cycle of Janma’s will continue. Whatever grief you are trying to overcome by killing yourself will hence not be gone but will simply be postponed to another Janma. Additionally, you will get the unusually greatest paapam of killing yourself! Such paapatma’s will for large number of times be born in Pishaacha forms and if with some great punya they ever take a human form, they will have to experience the grief due to atma-hatya-patakam. In case you really don’t want grief, stop lamenting for what happened and try to stop this cycle of Janana-Maranas. The best way to come out of this cycle is by surrendering yourself to Paramaatma. Near by, there is a great Kshetra by name Gajakaananam. Go there and do Tapas for Parameshvara” .
+
+Vasistha then followed Bhudevi‘s advise and performed severe Tapas. On Shiva's darshna he asked Parameshwara “O Aadi Gruhastha! Since I have severe hunger (of Brahma-jnanam), and it is afternoon time (as I am experiencing severe heat from my Tapas), please give Bhiksha of Your Brahmavidya Jnanam in my Hrdayam (Hrdayam is my Bhiksha Patra), so that I will never again be hungry (for anything)”. Then, Shiva re-appeared as DakshinaMurty and gave Brahmajnana to Vasishtha, making Him a Brahmarshi. Vasistha, the Videhamukta, then requested Shiva to stay back in Gajakaananam and bless the Bhaktas who come there. This Gajakaananam is now popular by the name ShriKalaHasti.
+
+## References
+
+Category:Rishis

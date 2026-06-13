@@ -1,0 +1,7 @@
+**Vaishampayana** was the traditional narrator of the Mahabharata, one of the two major Sanskrit epics of ancient India. He was an ancient Indian sage who was the original teacher of the *Krishna Yajur-Veda*. The *Ashvalayana Grihya Sutra* mentions him as *Mahabharatacharya*. He is also mentioned in the *Taittiriya Aranayaka* and the *Ashtadhyayi* of Pāṇini.
+
+He was a pupil of Vyasa, from whom he learned the *Jaya*, the original 8,800 verses of the *Mahabharata*. He later expanded the *Jaya* to 24,000 verses under the name *Bharata*, which he recited to King Janamejaya at his *sarpa satra* (snake sacrifice). The *Harivamsa* is also said to have been recited by him. The full 100,000 verses of the *Mahabharata* was not complete until several centuries later.
+## Further Details
+Ved Vyasa had arranged the accumulated,revealed, Vedic literature into the well known four branches. Of these, the yajnika and liturgical mystical hymns (revealed mostly in prose), which formed the Yajus descension, came to the custody of Vaisampayana,who was also the custodian of Mahabharata. Vaisampayana was unique to have obtained this double honour of preserving and propagating both a Vedic branch, and a Grand Epic. In course of time Yajus literature itself developed further into many notable branches such as Kathaka, the Maitrayaniya, the Saubala and others; and also into the so called White Yajus School, the Sukla Yajurveda.
+
+## References

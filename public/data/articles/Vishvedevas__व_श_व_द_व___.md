@@ -1,0 +1,33 @@
+Vishvedevas (Samskrit : विश्वेदेवाः) are a group of deities of considerable importance in Vedas, specifically in Rig Veda, and in ritualistic observances. In the Rig Veda apart from isolated mantras about Vishvedevas there are fifty-eight independent suktas in praise of them. They have varied attributes and actions but are almost always connected with time and space, hence their contribution to Vedanga Jyotisha, the ancient Indian Astronomy is also significant. Many Puranas also refer to the Vishvedevas, countable like Maruts, as ten in number.
+
+Vaishvedeva (वैश्वदेवम्) one of the seven Pakayajnas, relates to the offerings made by grhastha to Vishvedevas. वैश्वदेवे विश्वे देवाः (आ.गृ.सू.७-२९) इति आपस्तम्बसूत्रम्।
+
+## परिचयः ॥  Introduction
+It is well known that the Rigvedic deities are structured into three natural deities based on their localization and we find this mentioned in the Nirukta. They are  localized to earth (पृथिवीस्थानः) atmosphere (अन्तरिक्षस्थानः) and sky (द्युस्थानः), due to their separate activities they have many names.<blockquote>तिस्रः एव देवताः इति नैरुक्ताः । तासां माहाभाग्यात् एकैकस्याः अपि बहूनि नामधेयानि भवन्ति । सूर्यः द्युस्थानः । वायुः वा इन्द्रः वा अन्तरिक्षस्थानः । अग्निः पृथिवीस्थानः । (Nirukta. 7.3)</blockquote>One of the important deities of the aerial region, Vishvedevas are revered in many suktas of the Rig Veda. According to Brhddevata, the eleven suktas in the 5th Mandala of Rigveda are devoted to Visvedevas. <blockquote>को नु वां वैश्वदेवानि एकादश पराण्यतः । (Brhd. Deva. 5.36)</blockquote>It also provides names of about forty Rigveda seers who had understood or realized the nature of Vishvedevas. 
+
+## Family and Lineage
+Puranic and Itihasa references mention the origin of Vishvedevas. In Vishnu Purana (Amsa 1 Adhyaya 15) and in the Vayu Purana, it is mentioned that Vishvedevas were the sons of Vishva (विश्वा) and Dharma (धर्मः).<blockquote>दक्षस्य दुहिता ख्याता लोके विश्वेति नामतः। विधिना सा तु धर्म्मज्ञ दत्ता धर्म्माय धर्म्मतः।</blockquote><blockquote>तस्याः पुत्रा महात्मानो विश्वेदेवा इति श्रुतिः ।। १४.३ ।। (Vayu. Pura. 2.14.3)</blockquote>Meaning: Daksha had a daughter famous in the world by the name of Vishva. O Dharmajna, she was duly given and righteously to Dharmadeva. It is well-known that her sons are the noble-ones, the Vishvedevas.
+
+Dharmadevata had married the ten daughters of Daksha; Vishvaa bore the Vishvadevas, Sadhyas were born from Sadhya, Marutvans were born of Marutvati, Vasus from Vasu, Bhanus from Bhanu, Muhurtas from Muhurta, Ghosha was born to Lambaa and Yami gave birth to Nagavithi. 
+
+## Number of Vishvedevas
+There are various versions about the number of Vishvedevas who are collectively named so. In the Rigvedic texts they are described to be a group of deities of a unique number 3339. Representing and using such an unusual number also depicts the highly advanced knowledge of our ancient seers. Indeed these devatas and the number associated with them, according to the ganita shastrajnas, has a connection with the eclipse cycle number of 3339.
+
+### दशविश्वेदेवाः॥ Ten Vishvedevas
+Bhavishya Purana details the names of the ten Vishvedevas as follows<blockquote>क्रतुर्दक्षो वसुः सत्यः कालकामौ धृतिः कुरुः । शङ्कुमात्रो वामनश्च विश्वेदेवा दश स्मृताः । । १२ (Bhav. Pura. 1.125.12)</blockquote>Meaning: Kratu (क्रतु) Daksha (दक्ष) Vasu (वसुः) Satya (सत्यः) Kala (काल) Kama (काम) Dhrti (धृतिः) Kuru (कुरुः) Shankumatra (शङ्कुमात्र) Vamana (वामन) are to be known as the ten Visvedevas.
+
+### Rigveda Legend about 3339 Vishvedevas
+The characteristic number of 3339 is found attributed to Vishvedevas, mentioned twice, in the Rigveda once each in Mandalas 3 and 10. <blockquote>त्रीणि शता त्री सहस्राण्यग्निं त्रिंशच्च देवा नव चासपर्यन् । औक्षन् घृतैरस्तृणन् बर्हिरस्मा आदिद्धोतारं न्यसादयन्त ॥९॥ (Rig. Veda. 3.9 and 10.52)</blockquote>Meaning: Three thousand and three hundred and thirty nine devatas waited upon Agni (Fire). They anointed him with many streams of ghee (clarified butter); seated him as the first hota (priest).
+
+This mantra is famously quoted as specifying the number of Vishvedevas to be 3339. In the sukta 10.52, where the number 3339 occurs for the second time in the Rig Veda about Vishvedevas, is attributed to the authorship of Sauchika Agni. Interesting details are explained between vishvedas and agni and the legend explaining the relationship between them has been described in this Rig veda sukta 10.52 as well as in Brhaddevata. 
+
+Briefly the suktas 10.51 is in the form of a conversation between devas and Agni. Just like in sukta three, there is a mention about Agni hiding in secret places. The legend goes on as follows.  Agni had three elder brothers who were carrying the offerings of yajnas (as havyavahanas) to the devatas. However, all three died due to the harsh vashatkaras pronounced as part of the recitations during the yajnas. Fearing that he will bear the same fate, Sauchika Agni, the youngest of the four, hid himself in the celestial waters, till vishvedevas found him and requested him to come out and help in carrying the offerings in yajnas to the devatas. Sauchika agrees to their request under the condition that he should have a prominent role in the yajna and that he should get the prayaja and anuyaja parts of havis.<blockquote>तव प्रयाजा अनुयाजाश्च केवल ऊर्जस्वन्तो हविष: सन्तु भागाः । तवाग्ने यज्ञो३ऽयमस्तु सर्वस्तुभ्यं नमन्तां प्रदिशश्चतस्रः ॥९॥  (Rig. Veda. 10.52)</blockquote>Brhaddevata explains this legend at great length to conclude that total number of Vishvedevas as the sum of three different numbers, namely 3000, 309 and 30. This establishes that bringing sauchikagni was the prime role of the Vishvedevatas adding up to 3339.
+
+## Role of Vishvedevas
+* **श्राद्धे प्रथमपूज्याः ॥ First Worshipped in Shraddha** : Vayu purana mentions about the tapas of the Vishvedevas for pleasing Pitrs, and Brahma, who grant them the boon of having a share in Shraddha. They are given the first priority of seating and worship in a Shraddha for forefathers. They are also the first recipients of the offerings made on that occasion.
+<blockquote>श्राद्धेऽस्माकं भवेदंशो ह्येष नः कांक्षितो वरः ।... अस्माकं कल्पिते श्राद्धे युष्मानग्रासनं ह वै ।। १४.१२ ।। (Vayu. Pura. 2.14. 10 and 12)</blockquote>
+* **Related to Directions** : It is said that Visvedevas created the directions as mentioned in the Shatapatha Brahmana.
+<blockquote>विश्वे देवा वैश्वानरा दिशः कृत्वा तास्वेतामाशिषमाशासत (Shat. Brahm. 6.5.2.6)</blockquote>
+* **Related to Seasons** : In another place they are described as the seasons. वै विश्वे देवास्तदेनां विश्वैर्देवैर्ऋतुभिः संविदानः (Shat. Brahm. 7.1.1.43)
+## References
+Category:Devatas

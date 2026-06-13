@@ -1,0 +1,10 @@
+thumb|501x501px|**Yuga Dharma**
+In Satya Yuga or the golden age there was a different set of Dharmas or laws; in Treta, they changed into another form; in Dvapara, the Dharmas were different from the Dharmas of other Yugas; and in Kali-Yuga, they assumed still another form. The Dharma changes according to the changes of the cycles. Man is undergoing change. His nature gets transformed through experiences. Hence, his external form of Dharmas also should change. 
+
+That which is achieved through contemplation in Satya Yuga, through yajnas in Treta Yuga, and through the worship of Lord Hari in Dvapara Yuga, may be attained through Kirtana or loud chanting of Lord Vishnu’s Name in Kali Yuga or Iron age. 
+
+In the Satya Yuga, the mind of men was generally pure. They had no distraction of the mind. Hence, meditation was easy and natural for them. That is the reason why contemplation has been prescribed for men of Satya Yuga. In the Treta Yuga, materials for the performance of Yajnas or sacrifices were easily available. The people had active tendencies. Therefore it was easy for them to perform Agnihotra, Jyotistoma, Darsa-Paurnimas and other Yajnas. That is the reason why Yajna has been described as the external form of Sanatana Dharma in that age. In the Dvapara Yuga, there was the manifestation of Avataras and men could easily have direct worship of God. Hence, worship was prescribed as the principal form of Sadhana in that age. In the Kali Yuga, there are many distractions for the mind. People lack in Brahmacharya, strength of will and power of enquiry or rational investigation. It is very difficult to procure materials for the performance of yajnas. Therefore, Hari Kirtana or loud chanting of the Divine Name and seva (सेवा | selfless service) of humanity have been recommended as the principal forms of Sadhana.
+
+Refer: Varaha Purana - Chapter 68 (https://archive.org/details/toaz.info-varaha-purana-unabridged-motilal-englishpdf-pr_e1d9a18739bfe3dd54249588e67c9ece/page/n9/mode/2up?view=theater)
+
+## References

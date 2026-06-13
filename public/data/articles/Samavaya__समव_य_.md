@@ -1,0 +1,20 @@
+Samavaya is one of the 6 padarthas described in Vaisheshika darshana and Ayurveda. The term samavaya refers to union or combination. It indicates perpetual co-inherence which leads to development of certain exclusive attributes and activity. 
+
+## Samavaya as per Vaisheshika Darshana
+<blockquote>इहेदमिति यतः कार्यकारणयोः स समवायः । वैशेषिक-७,२.२६ </blockquote>Kanada Rshi of Vaisheshika darshana, defined samavaya as the relation between the cause and the effect (according to the Vaisheshika school). Prashastapada defined it as the relationship existing between the substances that are inseparable, standing to one another in the relation of the container and the contained. The relation of samavaya is not perceivable but only inferable from the inseparable connection of the substances.
+
+## Samavaya as per Tarkasamgraha
+<blockquote>नित्यसम्बन्धः समवायः। अयुतसिद्धवृत्तिः। ययोर्द्वयोर्मध्ये एकमविनश्यद् अपराश्रितमेवावतिष्ठते तावयुतसिद्धौ। यथा अवयवाऽवयविनौ क्रियाक्रियावन्तौ जातिव्यक्ती विशेषनित्यद्रव्ये चेति॥ (Tark.)</blockquote>Samavaya is the constant or perpetual association. Its existence in this universe is recognized as essentially united association between 2 padarthas. Essentially united means when in between the 2, one   padartha can not exist separately without the other then those are called as 'ayutsiddha'.   For example, organ and the one whos organ is that (and made to function individually because then they wont work), action and the one who is performing that action can not be separated. (Needs expansion and editing).
+
+## Samavaya as per Charaka Samhita
+<blockquote>समवायोऽपृथग्भावो भूम्यादीनां गुणैर्मतः| स नित्यो यत्र हि द्रव्यं न तत्रानियतो गुणः||५०|| (Char. Samh. 1. 50)</blockquote>
+Meaning: Samavaya  is the inseparable relationship of dravya like bhumi etc with their guna (properties). This is eternal because whenever a dravya exists, it is not devoid of guna.  
+
+Commentary of Chakrapani- 
+
+समवायमाह- समवाय इत्यादि| समवायस्य चायं निर्देश एव लक्षणम्| तेनोत्तरत्र द्रव्यादिलक्षणे पुनरस्य लक्षणं न कर्तव्यम्| समवाय इति लक्ष्यनिर्देशः, अपृथग्भाव इति लक्षणम्; अपृथग्भावः अयुतसिद्धिः, सहैवावस्थानमिति यावत्| यथा- अवयवावयविनोः, गुणगुणिनोः, कर्मकर्मवतोः, सामान्यसामान्यवतोः; नह्यवयवादीन् विरहय्यावयव्यादय उपलभ्यन्ते| अपृथग्भावमेव विशेषयन्नाह- भूम्यादीनां गुणैर्मत इति| भूम्यादीनां भूमिप्रकाराणां; भूमिश्च भूयसामाधेयानामाधारा, तेनाधारत्वोदाहरणार्थमुक्ता; यतो भूमेरर्थाः सर्वे गुर्वादिपराद्याश्च गुणास्तथा चावयविसामान्यक(ध)र्माण्यप्याधेयानि, नेतरद्रव्ये यथोक्तसर्वाधेयसम्पत्तिः| एतेन भूम्यादीनामित्याधाराणां, गुणैरिति अप्रधानैराधेयैः; आधेयो ह्याधारापेक्षयाऽप्रधानम्, अप्रधाने च गुणशब्दो यथा- गुणीभूतोऽयमिति, अप्रधानमित्यर्थः; तेनाधाराणामाधेयैर्योऽपृथग्भावः स समवायः इति| तेन पृथिवीत्वगन्धवत्त्वयोरपृथक्सिद्धयोरप्याधाराधेयभावाभावान्न समवाय इत्युक्तं भवति| अत एवोक्तं वैशेषिके यत्- “अयुतसिद्धानामाधार्याधारभूतानां यः सम्बन्ध इहेतिप्रत्ययहेतुः स समवायः” (प.ध.सं.द्रव्यपदार्थनिरूपण) इति| स नित्य इति समवायोऽविनाशी| सत्यपि समवायिनां द्रव्याणां [१] नाशे समवायो न विनश्यति| अत्र हेतुमाह- यत्र हीत्यादि| यत्र द्रव्यं नियतं नित्यं, यथा- आकाशं, न तत्र नित्य आकाशेऽनियतो विनाशी गुणः, ‘कश्चित्’ इति शेषः| एवं मन्यते- नित्ये व्योम्नि परिमाणमपि तावन्नित्यं, तथा [२] द्रव्यत्वमप्याकाशगतं नित्यं, तथा नित्ययोराकाशतद्गुणयोः समवायलक्षणः सम्बन्धोऽपि नित्य एव| एवं तत्र समवायस्य नित्यत्वे सिद्धे एकरूपत्वात् समवायस्यान्यत्रापि नित्यत्वमेव| न चाश्रयद्रव्यनाशे [३] समवायविनाशः| यथा- गोव्यक्तिविनाशेऽपि गोत्वस्य सामान्यस्य न विनाशः| नित्यस्यैव समवायस्य ते ते पार्थिवद्रव्यादयस्तत्र तत्र व्यञ्जका भवन्ति सामान्यस्येव व्यक्तयः| अन्यैस्तु नित्यानित्यभेदेन द्विविधः समवायो व्याख्यातः; अयं च ग्रन्थो भूम्यादीनां गुणैरेव यः सम्बन्धस्तस्यैव यथाश्रुतस्य प्रतिपादक इति [४] व्याख्यातं; तत्तु न व्यापकं नापि वैशेषिकमतानुयायीति नेह प्रपञ्चितम्||५०||
+
+## Samavaya as Vadamargapada
+Samavaya has been included under the wadamargas by Acharya Charaka.
+
+Category:Ayurveda

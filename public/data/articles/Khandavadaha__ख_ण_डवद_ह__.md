@@ -1,0 +1,11 @@
+Khandavadaha (Samskrit: खाण्डवदाहः) refers to the episode of the burning of Khandava forest by Lord Agni with the help of Arjuna and Sri Krshna enumerated in the Adi Parva of the Mahabharata.
+
+## कथासारः ॥ Story in Brief
+In olden times there was a bold and mighty Raja called Shvetaki who started a twelve-year long yajna. Due to the continuous offering poured into the fire altar, Agni was overfed and he got indigestion. He lost all appetite for food, became weak and the brilliance of his face faded. Therefore, he approached Lord Brahma for a cure. Brahma declared that his indigestion would be cured if he could burn the huge forest, Khandava, the abode of the enemies of the devas. However, everytime Agni tried to consume the forest, he was rendered unsuccessful. He then waited for the advent of Nara-Narayana on the advice of Brahma. Subsequently, the Pandavas came to live there in Indraprastha with Sri Krshna. When the heat became unbearable there, Arjuna and Krshna, who were none other than the incarnations of Nara and Narayana, came to the banks of the river Yamuna. Knowing this, Agni, disguised as a brahmana, approached them and requested them to help him burn the Khandava forest. He also gave Arjuna an arrow-case which would never be empty, a chariot bearing a flag with Hanuman, four white horses adorned with gold chains and also the famous Gandiva bow. To Sri Krshna, he gave the Chakrayudha. As Krshna and Arjuna got ready to help and Agni started burning the forest, Indra at once sent a heavy downpour of rain with a view to save his friend Takshaka living there. However, Arjuna created a canopy of arrows above the forest preventing the rains from reaching the earth and thus, Agni carried on his work undisturbed, the forest was burnt and he was cured of his indigestion.
+
+In fact, it is said that, protected from Indra by Sri Krshna and Arjuna, the wise lord Agni consumed the Khandava forest for fifteen days.<blockquote>तद् वनं पावको धीमान् दिनानि दश पञ्च च । ददाह कृष्णपार्थाभ्यां रक्षितः पाकशासनात् ॥ २२७.४६ ॥</blockquote><blockquote>*tad vanaṁ pāvako dhīmān dināni daśa pañca ca । dadāha kr̥ṣṇapārthābhyāṁ rakṣitaḥ pākaśāsanāt ॥ 227.46 ॥*</blockquote>This story occurs as the Khandavadaha Parva and in the Adi Parva (Chapters 221-226) of the Mahabharata.
+
+## References
+
+Category:Itihasa
+Category:Mahabharata

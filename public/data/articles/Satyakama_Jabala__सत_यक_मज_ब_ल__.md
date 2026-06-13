@@ -1,0 +1,5 @@
+Satyakama the son of Jabala (जबाला) addressed his  mother and said: "Revered Mother, I wish to become a  brahmacharin. Of what gotra am I?"<blockquote>सत्यकामो ह जाबालो जबालां मातरमामन्त्रयाञ्चक्रे ब्रह्मचर्यं भवति विवत्स्यामि किङ्गोत्रोन्वहमस्मीति ॥ १ ॥</blockquote><blockquote>सा हैनमुवाच नाहमेतद्वेद तात यद्गोत्रस्त्वमसि बह्वहं चरन्ती परिचारिणी यौवने त्वामलभे साहमेतन्न वेद यद्गोत्रस्त्वमसि जबाला तु नामाहमस्मि सत्यकामो नाम त्वमसि स सत्यकाम एव जाबालो ब्रवीथा इति ॥ २ ॥ (Chan. Upan. 4.4.1 and 2) </blockquote>She said to him: "I do not know, my child, of what gotra you  are. In my youth I was preoccupied with many household  duties in your father's house and with attending on guests. I conceived you, and soon after your father left the world. Hence I do not know of what ancestry you are. I am Jabala by name and  you are Satyakama. So you may speak of yourself as  Satyakama Jaabala (जाबालः) (the son of Jabala).
+
+## References
+
+Category:Upanishads
